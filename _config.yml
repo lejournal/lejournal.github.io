@@ -26,9 +26,9 @@ github_username:  lejournalduk
 # Build settings
 markdown: kramdown
 theme: jekyll-theme-architect
-plugins:
+plugins_dir:
   - jekyll-feed
-  - jekyll-seo-tag
+#  - jekyll-seo-tag
   - jekyll-theme-architect
 
 
