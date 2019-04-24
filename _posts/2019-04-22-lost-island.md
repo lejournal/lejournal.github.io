@@ -1,3 +1,4 @@
+
 ---
 layout: default
 title:  "Lost island"
@@ -34,24 +35,24 @@ A cette heure avancée de la matinée, la place est presque vide et la musique d
 Lorsque le commissaire entre dans le bar, il est un peu en avance mais pense que son interlocuteur l'attend peut être déjà. Il prend son téléphone et met le doigt sur un petit capteur sensitif dont la température varie selon qu'il se rapproche ou s'éloigne de la personne avec qui il a rendez-vous. Ces petites améliorations de la vie quotidienne lui donnent la nostalgie du temps où ces capteurs servaient alors uniquement à lui indiquer s'il se rapprochait d'une personne qu'il serait susceptible de plaire.
 
 Kalvin a les yeux penchés sur la table, ses mains jointes cachent un vieux téléphone de service.
-- Pardonnez-moi, dit le commissaire, puis-je vous interrompre? Il me semble que nous avons rendez-vous, vous êtes celui qui a trouvé les ossements?
+— Pardonnez-moi, dit le commissaire, puis-je vous interrompre? Il me semble que nous avons rendez-vous, vous êtes celui qui a trouvé les ossements?
 
 Kalvin lève des yeux arrondis et serre ses poings.
 
-- Ma démarche va vous paraître inédite, voire surprenante, mais j'espère que vous comprendrez que ce n'est pas tous les jours qu'on trouve des ossements dans le Parc. Je suis chargé de trouver l'identité de la personne que vous avez découvert.
-- Je ne comprends pas, vous êtes flic?
-- Je suis médecin légiste, si vous permettez cette pédanterie. Les détails de l'administration sont toujours des contes merveilleux et de vrais mystères pour ceux qui ne connaissent pas notre ihstoire. Je fais partie de l'administration qui s'occupe de résoudre ce genre de cas, qui encore une fois ne font pas légion.  Je vous dois bien cette confession, c'est la première fois que je suis assigné à un cas pareil. Bien sûr, il y a bien eu quelques affaires dans ce genre, que notre service a traité avec succès et que l'on nous enseigne lors de notre intégration au service. Mais je fais partie du Service depuis 5 ans maintenant et c'est la première fois que l'on fait une telle découverte dans le Parc.
+— Ma démarche va vous paraître inédite, voire surprenante, mais j'espère que vous comprendrez que ce n'est pas tous les jours qu'on trouve des ossements dans le Parc. Je suis chargé de trouver l'identité de la personne que vous avez découvert.
+— Je ne comprends pas, vous êtes flic?
+— Je suis médecin légiste, si vous permettez cette pédanterie. Les détails de l'administration sont toujours des contes merveilleux et de vrais mystères pour ceux qui ne connaissent pas notre ihstoire. Je fais partie de l'administration qui s'occupe de résoudre ce genre de cas, qui encore une fois ne font pas légion.  Je vous dois bien cette confession, c'est la première fois que je suis assigné à un cas pareil. Bien sûr, il y a bien eu quelques affaires dans ce genre, que notre service a traité avec succès et que l'on nous enseigne lors de notre intégration au service. Mais je fais partie du Service depuis 5 ans maintenant et c'est la première fois que l'on fait une telle découverte dans le Parc.
 Kalvin ne dessera pas les dents mais ses sourcils se levaient doucement.
-- Je ne sais pas comment vous expliquer, en vérité. Je suis arrivé dans cette administration en tant que commissaire. Il y avait alors peut être vingt personnes dans le service et chacun était fier de son titre et de son histoire. Mais aujourd'hui, nous ne sommes plus que trois et chacun touche un peu à tout, si vous voyez ce que je veux dire. C'est pourquoi je préfère me présenter en tant que médecin légiste, car il est est fort possible que l'on me demande simplement de faire quelques vérifications rapides et scientifiques sur les ossements que vous avez trouvé. En tout cas vous ne serez pas inquiété.
-- Mais alors pourquoi vous voulez me parler? Je ne vous connais pas. Écoutez, je vai appeler ma hiérarchie.
+— Je ne sais pas comment vous expliquer, en vérité. Je suis arrivé dans cette administration en tant que commissaire. Il y avait alors peut être vingt personnes dans le service et chacun était fier de son titre et de son histoire. Mais aujourd'hui, nous ne sommes plus que trois et chacun touche un peu à tout, si vous voyez ce que je veux dire. C'est pourquoi je préfère me présenter en tant que médecin légiste, car il est est fort possible que l'on me demande simplement de faire quelques vérifications rapides et scientifiques sur les ossements que vous avez trouvé. En tout cas vous ne serez pas inquiété.
+— Mais alors pourquoi vous voulez me parler? Je ne vous connais pas. Écoutez, je vai appeler ma hiérarchie.
 Le commissaire raidit ses jambes, sursauta légèrement, il lança la main vers l'avant et appuya une force rapide et inquiète sur le téléphone que Kalvin tenait toujours entre ses mains.
-- Est-ce que c'est bien la peine? Je viens ici simplement pour vous exprimer mon soutien, mon amitié après cette découverte qui a du être difficile pour vous.
+— Est-ce que c'est bien la peine? Je viens ici simplement pour vous exprimer mon soutien, mon amitié après cette découverte qui a du être difficile pour vous.
 Kalvin fronça les sourcils et tenta de tirer vers lui son téléphone, il s'aperçut alors de la pression qu'exerçait le commissaire.
-- Soyons honnêtes, nous sommmes entre nous, Kalvin, cette affaire est sans queue ni tête. Connaissez-vous quelqu'un qui ait perdu la vie dans le Parc?
+— Soyons honnêtes, nous sommmes entre nous, Kalvin, cette affaire est sans queue ni tête. Connaissez-vous quelqu'un qui ait perdu la vie dans le Parc?
 Kalvin tira violemment ses mains vers lui et grommela dans un son: Vous savez très bien que les gens ne restent pas ici pour leurs vieux jours.
-- Mais ici nous avons affaire au corps d'un enfant.
+— Mais ici nous avons affaire au corps d'un enfant.
 Devant le silence cramoisi de Kalvin, le commissaire s'inquiéta et se résolu à divertir la conversation.
-- Vous comprenez donc que ma petite administration soit obligée de s'étonner de cette découverte. Je me demande même s'il ne faudrait pas que j'écrive un roman historique tant notre cas est unique, et pourtant je suis persuadé que dans 20 ans on n'en parlera pas dans notre Manuel.
+— Vous comprenez donc que ma petite administration soit obligée de s'étonner de cette découverte. Je me demande même s'il ne faudrait pas que j'écrive un roman historique tant notre cas est unique, et pourtant je suis persuadé que dans 20 ans on n'en parlera pas dans notre Manuel.
 
 
 
