@@ -30,7 +30,7 @@ plugins_dir:
   - jekyll-feed
 #  - jekyll-seo-tag
   - jekyll-theme-architect
-
+google_analytics: "UA-131156393-1"
 
 # Exclude from processing.
 # The following items will not be processed, by default. Create a custom list
