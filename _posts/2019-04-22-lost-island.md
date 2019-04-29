@@ -1,4 +1,3 @@
-
 ---
 layout: default
 title:  "Lost island"
@@ -36,22 +35,25 @@ Kalvin a les yeux penchés sur la table, ses mains jointes cachent aisément un 
 
 Kalvin lève des yeux arrondis et commence à respirer profondément.
 
-— Ma démarche doit vous paraître surprenante, voire inédite, mais j'espère que vous comprendrez que ce n'est pas tous les jours que l'on trouve un mort dans le Parc. Je suis la personne qui est chargée de trouver l'identité de la personne que vous avez découvert.
-— Vous êtes flic? Je croyais que vous faisiez partie des médecins du groupe de soutien psychologique. Ça me créer des ennuis cette histoire je le sens bien venir.
-— Vous aviez bien compris, je suis médecin, si vous permettez, médecin légiste, sur cette affaire. Les détails de l'administration sont toujours des contes merveilleux et de vrais mystères pour qui a la malchance de devoir les écouter. Je fais partie du service qui s'occupe de résoudre les affaires humaines encore mystérieuses. Elles ne font pas légion, dans notre district. Je vous dois bien cette confession, c'est la première fois que je suis assigné à un cas pareil. Bien sûr, il y a bien eu quelques cas dans ce genre, que notre service a traité avec succès. On nous les enseigne lors de notre stage d'intégration. Mais je fais partie du Service depuis 5 ans maintenant et c'est la première fois que l'on fait une telle découverte dans le Parc, voire dans le district.
-Kalvin ne desserait plus les dents mais ses sourcils se levaient doucement.
-— Je ne sais pas comment vous expliquer, en vérité, votre intuition n'était pas fausse, car oui je suis arrivé dans le service en tant que commissaire. Il y avait alors peut être trente personnes et chacun était fier de son titre et de son rôle, même si aucun d'entre nous n'avait déjà rien à faire. Vous vous souvenez certainement, c'était un an avant l'abolition du Code Pénal, et dejà plus aucun crime n'était commis depuis longtemps.
-Aujourd'hui, nous ne sommes plus que trois et chacun touche un peu à tout, si vous voyez ce que je veux dire. Je préfère me présenter à vous en tant que médecin légiste, car il est est fort possible que je doive me contenter simplement de faire quelques vérifications scientifiques, rapides et de routine sur les ossements. En tout cas vous ne serez pas inquiété. Pas par moi et pas par la Loi, puisqu'il n'y en a plus pour vous poursuivre.
-— Mais alors pourquoi vous voulez me parler? Je ne vous connais pas. Écoutez, je vais appeler ma hiérarchie.
+— Ma démarche doit vous paraître surprenante, voire inédite, mais j'espère que vous comprendrez que ce n'est pas tous les jours que l'on trouve un mort dans le Parc. Je suis ainsi chargé de trouver l'identité de la personne que vous avez découvert.
+— Vous n'êtes pas médecin? Je croyais que vous faisiez partie du groupe de soutien psychologique.
+— Vous aviez bien compris, je suis médecin, si vous permettez, médecin légiste. Je fais partie du service qui s'occupe de résoudre les affaires humaines encore mystérieuses. Elles ne sont pas légion, dans notre district. Je vous dois bien cette confession, c'est la première fois que je suis assigné à un cas pareil. Bien sûr, il y a bien eu quelques cas approchants, que l'on nous les enseigne lors de notre stage d'intégration. Mais c'est la première fois que l'on fait une telle découverte dans le Parc, voire dans le district.
+Kalvin ne desserait plus les dents et parlait pour lui seul.
+— Vous êtes flic. Ça va me créer des ennuis cette histoire je le sens bien venir.
+— Vous ne serez pas inquiété. Pas par moi et pas par l'administration dans ce district. En vérité, votre intuition est juste, je suis arrivé dans le service en tant que commissaire. Il y avait alors peut être trente personnes à l'époque, j'étais fier d'être commissaire et chacun était fier de son titre et de son rôle, vous savez, même si déjà à l'époque n'avait déjà rien à faire, il y a si peu de crimes par ici.
+Les détails de l'administration sont toujours des contes merveilleux et de vrais mystères pour qui a la malchance de devoir les écouter. 
+Aujourd'hui, nous ne sommes plus que trois, vous voyez ce que je veux dire, chacun touche un peu à tout. Je préfère me présenter comme médecin légiste, ici, il est fort possible que je doive simplement faire sur les ossements quelques vérifications scientifiques, rapides, de routine.
+— Mais alors pourquoi vous voulez me parler? Écoutez, je vais appeler ma hiérarchie.
 Le commissaire raidit ses jambes, sursauta légèrement, il lança la main vers l'avant et appuya ses doigts sur le téléphone que tenait Kalvin.
-— Est-ce que c'est bien la peine? Je suis ici pour vous, pour exprimer mon soutien, mon amitié après cette découverte qui a du être difficile pour vous. Après tout nous sommes des pions sans influence.
+— Est-ce que c'est bien la peine? Je suis ici pour vous, je suis ici pour exprimer mon soutien, après cette découverte qui a dû être difficile pour vous. Après tout nous sommes des pions sans influence.
 Kalvin fronça les sourcils et tenta de tirer vers lui son téléphone, il s'aperçut alors de la pression qu'exerçait le commissaire.
-— Soyons honnêtes entre nous, Kalvin, cette affaire est sans queue ni tête. On dirait la résurgence d'une vieille histoire, peut-être du temps d'avant le 
-Kalvin tira violemment ses mains vers lui et grommela dans un son.
-— Vous savez très bien que les gens ne meurent plus ici, ils vont finir leurs jours dans le Sud ou ils se font incinérés, s'ils ont la carte de fidélité.
+— Je vais être honnête, Kalvin, cette affaire est sans queue ni tête. On dirait la résurgence d'une vieille histoire. Est-ce qu'elle date d'avant le Parc? À quoi avez-vous pensé quand vous avez découvert le cadavre?
+Kalvin tira avec force ses mains vers lui.
+— Vous savez très bien que les gens ne meurent pas ici, ils vont finir leurs jours dans le Sud ou ils se font incinérés, s'ils ont la carte de fidélité.
 — Mais ici nous avons affaire au corps d'un enfant.
 Devant le silence cramoisi de Kalvin, le commissaire s'inquiéta et se résolu à divertir la conversation.
-— Vous comprenez donc que ma petite administration soit obligée de s'étonner de cette découverte. Je me demande même s'il ne faudrait pas que j'écrive un roman historique, au lieu de chercher la petite bête, et pourtant je suis persuadé que dans 20 ans on ne parlera plus de notre découverte.
+— Je me demande même s'il ne faudrait pas que j'écrive un roman historique, au lieu de chercher la petite bête, et pourtant je suis persuadé que dans 20 ans on ne parlera plus de notre découverte.
+
 
 
 ## Passage totalement inutile :D
