@@ -1,4 +1,3 @@
-
 ---
 layout: default
 title:  "Lost island"
@@ -11,7 +10,7 @@ Ce fut après six semaines de pluies sans discontinuer que les morts commencère
 
 Le premier fut découvert par Kalvin, le conducteur du petit train aquatique au Parc de Lost Island.
 Il commençait sa journée. Son bateau avait eu du mal à démarrer ce matin-là. Mais là, il suivait le rail mécanique tracé dans l'eau.
-Il engagea sa machine dans le canal entre une île artificielle plantée de palmiers homogènes, et une petite forêt d'épicéas intercalés entre de petites marionettes animées.
+Il engagea sa machine dans le canal, entre une île artificielle plantée de palmiers homogènes, et une petite forêt d'épicéas intercalés entre de petites marionettes animées.
 Puis, alors qu'il se trouvait en plein milieu de ce passage, le bateau s'arrêta. Le moteur tournait encore mais quelque chose avait dû dériver dans l'eau et se glisser entre les rails pour se bloquer sous le bateau.
 Il lança une annonce pour demander aux passagers de ne pas s'inquiéter.
 Il se pencha par dessus bord et regarda ce qui bloquait le bateau. Sous la travée, il vît un crâne d'enfant.
@@ -20,40 +19,72 @@ Kalvin décrocha le téléphone de service sous le tableau de bord et prévint s
 
 
 ## La mesure de Kalvin
-Le commissaire a rendez-vous avec Kalvin, le machiniste qui le premier a signalé les ossements.
-Il prend le train vers la Belle Ville où habitent la plupart des employés du Parc. Depuis longtemps maintenant, les voitures ne sont plus utilisées dans le district du Parc. En vérité, plus personne ne possède de voiture depuis que les pluies sont devenues fréquentes, que les routes sont rendues hasardeuses, dangereuses. L'état s'est mis à ne plus entretenir les routes puis a arrêté de s'occuper des voitures accidentées. Il est maintenant considéré irresponsable, incivique voire malhonnête et polluant, de conduire son propre véhicule dans le district du Parc.
-Ce qui n'empêche pas le Parc d'avoir des attractions avec de vieux véhicules sur roues, diversement copiés des diligences, des voitures des années 20 30 ou 50, ou des monoroues apparues au début du millénaire.
+L'inspecteur a rendez-vous avec Kalvin.
 
-L'inspecteur sort du train, prend un escalier mécanique qui l'amène sur une grande place couverte d'un haut toît en plastique transparent, sur lequel on entend les gouttes rebondir doucement.
-En levant la tête, il peut voir accroché juste au dessous du toît, de grands panneaux lumineux qui lui indiquent les différents quartiers de la ville. La Grange des Amis, le Quartier du Saule immortel, la Tour aux mille fleurs.
+Le train arrive dans la cité de Belle Ville où habitent la plupart des employés du Parc, car c'est la seule ville directement reliée au Parc. Depuis longtemps maintenant, les voitures ne sont plus utilisées dans le district. En vérité, plus personne ne possède de voiture depuis que les pluies sont devenues si fréquentes, que les routes sont rendues hasardeuses, dangereuses. L'état s'est mis à ne plus entretenir les routes puis a arrêté de s'occuper des voitures accidentées. Il est maintenant considéré irresponsable, incivique voire malhonnête et polluant, de conduire son propre véhicule dans le district du Parc.
 
-A cette heure avancée de la matinée, la place est presque vide et la musique d'habitude omniprésente se réduite à un petit filet persistant et inévitable qui accompagne les pas. Le commissaire a rendez-vous à l'entrée du quartier Malcom X, dans le bar Le Buffy. Il est le dernier bar à avoir encore un flipper, vestige mécanique qui ne marche plus depuis longtemps, mais dont les fresques et les clignotements forment une décoration baroque et vaguement ancienne.
+L'inspecteur sort du train, prend un escalier mécanique qui débouche sur une grande place couverte d'un haut toît en plastique transparent.
+En levant la tête, il peut voir accroché juste au dessous du toît, de grands panneaux lumineux qui lui indiquent les différents quartiers de la ville. La Grange des Amis, le Quartier du Saule immortel, la Tour aux mille fleurs. On entend les gouttes rebondir doucement.
 
-Lorsque le commissaire entre dans le bar, il est un peu en avance mais il espère que son interlocuteur l'attend déjà. Il prend son téléphone et pose le doigt sur un petit capteur sensitif dont la température varie selon qu'il se rapproche ou s'éloigne de la personne avec qui il a rendez-vous. Ces petites améliorations de la vie quotidienne lui donnent la nostalgie du temps où ces capteurs servaient alors uniquement à lui indiquer s'il se rapprochait d'un ou une anonyme qu'il serait susceptible de plaire.
+A cette heure avancée de la matinée, la place est presque vide et la musique d'habitude omniprésente se réduite à un petit filet persistant qui se rythme sur les pas solitaires. L'inspecteur a rendez-vous dans le bar Le Buffy. Il est le dernier bar à avoir encore un flipper, vestige mécanique qui ne marche plus depuis longtemps, mais dont les fresques et les clignotements forment une décoration baroque et vaguement ancienne.
 
-Kalvin a les yeux penchés sur la table, ses mains jointes cachent aisément un vieux téléphone de service.
-— Pardonnez-moi, dit le commissaire, puis-je vous interrompre? Il me semble que nous avons rendez-vous, vous êtes celui qui a trouvé les ossements?
+Lorsque l'inspecteur entre dans le bar, il est un peu en avance mais il espère que son interlocuteur l'attend déjà. Il prend son téléphone et pose le doigt sur un petit capteur sensitif. La température varie selon qu'il se rapproche ou s'éloigne de la personne avec qui il a rendez-vous. Ce geste lui fait se souvenir du temps où ces capteurs lui servait pour les applications de rencontre, pour indiquer s'il se rapprochait d'un ou une anonyme avec qui il serait susceptible de matcher.
+
+Kalvin a les yeux penchés sur la table, ses mains jointes cachent complètement un vieux téléphone aux couleurs du Parc.
+— Pardonnez-moi, dit l'inspecteur, je suis en avance? Il me semble que nous avons rendez-vous, vous êtes Kalvin, la personne qui a trouvé les ossements?
 
 Kalvin lève des yeux arrondis et commence à respirer profondément.
 
-— Ma démarche doit vous paraître surprenante, voire inédite, mais j'espère que vous comprendrez que ce n'est pas tous les jours que l'on trouve un mort dans le Parc. Je suis donc chargé de trouver l'identité de la personne que vous avez découvert.
-— Je croyais que vous faisiez partie des médecins du groupe de soutien psychologique. Ça va me créer des ennuis cette histoire je le sens bien venir.
-— Vous aviez bien compris, je suis médecin, si vous permettez, médecin légiste, sur cette affaire. Je fais partie du service qui s'occupe de résoudre les affaires humaines encore mystérieuses. Elles ne font pas légion, dans notre district. Je vous dois bien cette confession, c'est la première fois que je suis assigné à un cas pareil. Bien sûr, il y a bien eu quelques cas dans ce genre, que notre service a traité avec succès. On nous les enseigne lors de notre stage d'intégration. Mais je fais partie du Service depuis 5 ans maintenant et c'est la première fois que l'on fait une telle découverte dans le Parc, voire dans le district.
-# Kalvin ne desserait plus les dents mais ses sourcils se levaient doucement.
-— Vous êtes flic? 
-— Je ne sais pas comment vous expliquer, en vérité. Votre intuition n'est pas fausse, peut-être que mon ancien métier se devine encore dans mes gestes. Je suis arrivé dans le service en tant que commissaire. Il y avait alors peut être trente personnes à l'époque et chacun était fier de son titre et de son rôle, même si aucun d'entre nous n'avait déjà rien à faire. Vous vous souvenez certainement, c'était un an avant l'abolition du Code Pénal, et dejà plus aucun crime n'était commis depuis longtemps.
+— Ma démarche doit vous paraître surprenante, voire inédite, mais j'espère que vous comprendrez que ce n'est pas tous les jours que l'on trouve un mort dans le Parc. Je suis chargé de trouver l'identité de la personne que vous avez découvert.
+
+— Vous n'êtes pas médecin? Vous m'aviez dit que vous faisiez partie du groupe de soutien psychologique.
+
+— Je suis médecin, en effet, médecin légiste. Si vous permettez. Je fais partie du service qui s'occupe de résoudre les affaires humaines encore mystérieuses. Elles ne sont pas légion, dans ce district. Je vous dois bien cette confession, c'est la première fois que je suis assigné à un cas pareil. Bien sûr, il y a bien eu quelques cas de décès inattendus, que l'on nous les enseigne lors de notre stage d'intégration. Mais c'est la première fois que l'on fait une telle découverte dans le Parc, voire dans le district.
+
+Kalvin ne desserait plus les dents et parlait pour lui seul.
+
+— Vous êtes flic. Ça va me créer des ennuis cette histoire je le sens bien venir.
+
+— Flic n'est plus le bon mot et je vous assure, vous ne serez pas inquiété. Pas par moi et pas par l'administration dans ce district. Pourtant... c'est vrai, je suis arrivé dans le service avec le titre d'inspecteur. Il y avait alors peut être trente personnes à l'époque, j'étais fier d'être inspecteur et chacun était fier de son titre et chacun était fier de son rôle, et pourtant déjà à l'époque n'avait déjà rien à faire, il y a si peu de crimes par ici.
 Les détails de l'administration sont toujours des contes merveilleux et de vrais mystères pour qui a la malchance de devoir les écouter. 
-Aujourd'hui, nous ne sommes plus que trois, vous voyez ce que je veux dire, chacun touche un peu à tout. Je préfère me présenter en tant que médecin légiste, ici, car il est est fort possible que je doive simplement faire sur les ossements quelques vérifications scientifiques, rapides et de routine. En tout cas vous ne serez pas inquiété. Pas par moi et pas par la Loi dans ce district.
-— Mais alors pourquoi vous voulez me parler? Je ne vous connais pas. Écoutez, je vais appeler ma hiérarchie.
-Le commissaire raidit ses jambes, sursauta légèrement, il lança la main vers l'avant et appuya ses doigts sur le téléphone que tenait Kalvin.
-— Est-ce que c'est bien la peine? Je suis ici pour vous, je suis ici pour exprimer mon soutien, après cette découverte qui a du être difficile pour vous. Après tout nous sommes des pions sans influence.
-Kalvin fronça les sourcils et tenta de tirer vers lui son téléphone, il s'aperçut alors de la pression qu'exerçait le commissaire.
-— Je vais être honnête entre nous, Kalvin, cette affaire est sans queue ni tête. On dirait la résurgence d'une vieille histoire, peut-être du temps d'avant le Parc. Qu'est ce que vous avez ressenti quand vous avez découvert le cadavre?
-Kalvin tira violemment ses mains vers lui et grommela dans un son.
-— Vous savez très bien que les gens ne meurent plus ici, ils vont finir leurs jours dans le Sud ou ils se font incinérés, s'ils ont la carte de fidélité.
-— Mais ici nous avons affaire au corps d'un enfant.
-Devant le silence cramoisi de Kalvin, le commissaire s'inquiéta et se résolu à divertir la conversation.
-— Je me demande même s'il ne faudrait pas que j'écrive un roman historique, au lieu de chercher la petite bête, et pourtant je suis persuadé que dans 20 ans on ne parlera plus de notre découverte.
+Aujourd'hui, nous ne sommes plus que trois dans mon service, vous voyez ce que je veux dire, chacun touche un peu à tout. Je préfère me présenter à vous comme médecin légiste, c'est plus réaliste. 
+
+— Mais alors pourquoi vous voulez me parler? 
+
+— J'ai déjà commencé sur les ossements quelques vérifications scientifiques, rapides, de routine.
+
+Kalvin l'interrompit. "Écoutez, je vais appeler ma hiérarchie."
+
+L'inspecteur raidit ses jambes, sursauta légèrement, il lança la main vers l'avant et appuya ses doigts sur le téléphone que tenait Kalvin.
+
+— Est-ce que c'est bien la peine, pourquoi les déranger? Après tout je suis là pour vous parler. Rien ne presse, écoutez-moi. Nous sommes des pions sans influence.
+
+Kalvin fronça les sourcils et tenta de tirer vers lui son téléphone, il s'aperçut alors que la pression qu'exerçait l'inspecteur l'empêchait de bouger ses mains.
+
+— Je vais être honnête, Kalvin, cette affaire est sans queue ni tête. Quand elle est apparu tout le monde a cru à une vieille histoire qui datait d'avant le Parc. Vous savez très bien qu'il n'y a pas de cadavre ici. Les gens vont dans le sud pour mourir. À quoi avez-vous pensé quand vous avez découvert le cadavre?
+Kalvin tira avec tant de force ses mains vers lui que ses poings rebondirent sur son torse.
+
+— Je me suis dit que j'allais avoir des ennuis moi. Ah mais ils m'ont dit au Parc que non fallait pas s'inquiéter, ils allaient s'en occuper. Et qui je vois débarquer comme un cheveu sur la soupe, ça rigole pas là.
+
+[//]: # ils vont finir leurs jours dans le Sud ou ils se font incinérés, s'ils ont la carte de fidélité. Voilà ce à quoi j'ai pensé. 
+
+— C'est la procédure qui m'a envoyé, en pensant que ce serait une routine. Mais ici nous avons affaire au corps d'un enfant.
+Devant le silence cramoisi de Kalvin, l'inspecteur relança.
+— Est-ce que le Parc voudra rendre public cette affaire? Cet enfant est mort il y a trois ans. Il y a prescription. Je veux juste savoir ce qui s'est passé.
+
+
+[//]: # (L'inspecteur) Je me demande même s'il ne faudrait pas que j'écrive un roman historique, au lieu de chercher la petite bête, et pourtant je suis persuadé que dans 20 ans on ne parlera plus de notre découverte.
+
+Kalvin se tord les mains. 
+" Mais j'y suis pour rien moi, je ne suis pas d'ici, j'ai grandi dans les Alentours du Nord, j'y connais rien aux morts dans votre district. Quand je suis arrivé on m'a expliqué il y a cinq ans. Le Parc il ne veut pas des morts, dès que les gens commencent à flancher du genou, ils sont envoyés dans le Sud Dieu sais où, ça fait pas propre il paraît des cadavres. Et puis tout le district est couvert, c'est pas comme chez moi, et pourtant il pleut autant je peux vous le dire, ça n'arrête pas, même que quand je suis arrivé dans le Pays, j'ai arrêté de m'enrhumer, ça fait un chox je vous assure. Si on me renvoie chez moi, je vais tomber malade oui."
+
+// L'inspecteur lui demande où il est né. Lille, qu'il répond. "C'est drôle j'étais commissaire là bas avant d'être muté dans le district du Parc." 
+
+Kalvin reprend alors: "Il faut bien se dire qu'ici on fait ce qu'on peut on est bien protégé, tous les gens du Parc on est bien contents, quand je vois parfois à la télé les régions du Grand Désert ou celles sur ma région dans le Nord, ça fait pas envie d'y retourner. Vous voulez savoir? Ce district on veut pas le quitter, alors nous on fait ce qu'on peut. Et puis les copains souvent on ne sait même pas où ils sont nés. Je sais bien que la hiérarchie elle voudra les envoyer se faire incinérer à Petaouchnok, mais nous on fait ce qu'on veut n'est ce pas. Alors oui on enterre les gens entre nous, ça va gêner qui? Vous voulez le voir ce que c'est que la vie et la mort d'un pauvre gars d'ici?"
+
+C'est ainsi que Kalvin va inviter l'Inspecteur au cérémonial dont il est au fond fier. Il va l'habiller lui mettre un costume, comme à tous les autres. Et il verra - ainsi de plus près - la Cérémonie.
+
+
 
 
 
