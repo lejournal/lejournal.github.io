@@ -19,27 +19,39 @@ Il s'est penché par dessus bord et a regardé ce qui bloquait le bateau. Sous l
 
 Kalvin a décroché le téléphone de service sous le tableau de bord et prévenu la direction, qui lui a envoyé des plongeurs déguisés en grenouilles, tandis que lui devait s'assurer que la musique allait continuer à jouer.
 
+## Chapitre 2. A couvert
+Le héros, le vigile, commence ses tournées. Le Parc est bien humié et irrité par ces découvertes. Ils ne voudraient pas que des romanichelles ne profitent du terrain pour cacher leurs méfaits.
+Il rentre chez lui et sa femme, danseuse acrobate se moque de lui et ils font des cabrioles et tombent du lit.
 
-## Réunion de crise.
+
+# Chapitre 3
+Découverte de la procession
+
+Avec son collègue il est en patrouille et tombe par hasard sur la procession. il fait fuire les gens. Le cadavre est trouvé par terre. Il a eu le temps d'arracher le masque d'une personne et de voir son visage ou de le découvrir.
+
+
+
+# Chapitre 4
+Il apprend que sa femme est tombée. Il court mais trop tard elle est morte en tombant du trapèze.
+Il apprend alors que sa femme va être incinérée, par les lois du Parc.
+
+# Chapitre 5
+Il décide contacter les gens qui enterrent les morts, maintenant qu'il les connait. Dans une réserve avec plein de trucs toxiques - qu'il utilisera pour se suicider.
+
+
+
 La pluie descend le long des chemins du labyrinthe d'Alice au Pays des Merveilles. La pluie suit les voies ouvertes, court le long du béton arrondi qui délimite les haies.
 
 Il pleut depuis tellement de jours et de nuits que le labyrinthe est devenu une attraction initiatique, qui se commence les mollets dans l'eau et se finit avec de l'eau bien au dessus de la taille. Bref, plus personne n'y va.
 
-C'est un excellent endroit pour tenir une réunion entre nous. Depuis que les cadavres avaient commencé à monter, la direction du Parc était de plus en plus irritée. Elle avait discrètement escamoté le cadavre, puis après avoir mené une enquête discrète mais sans résultats, elle avait commencé à organiser des patrouilles autour du fleuve.  
-En tant que vigile du Parc je faisais partie des gars chargés de faire des rondes de jour comme de nuit dans les forêts autour des attractions.  
-Mais ce que ne savait pas le Parc, c'est que je faisais aussi partie des employés qui depuis toujours enterraient les morts dans le Parc, à l'insu de la Direction.
-
-J'ai contacté les autres personnes de mon groupe et on a convenu de se retrouver dans la réserve du labyrinthe. Pour l'occasion j'avais mis un masque de cheval. On a la bonne habitude de tous porter un masque, pour éviter de se connaître comme dans le civil lorsque l'on travaillle et pour être discret sur les vidéos de surveillance. Après tout quoi de plus normal que deux marsouins, un chien fou, un cheval et une petite souris en train de discuter autour d'une bêche et d'une brouette.
-J'avais rapidement exposé la situation aux autres membres du groupe des fossoyeurs.
-— Il faudra qu'on fasse très attention les prochaines fois, avait dit l'un des marsouin, toujours très autoritaire.
-— Je pense que cela va vite se calmer. Après tout le Parc n'a pas envie d'une mauvaise publicité, ils n'iront pas chercher très loin.
-
-On a convenu d'être très prudents les prochaines fois. Les enterrements avaient lieu la veile des nuits sans lune, une idée amenée il y a quelques années par un employé au fort accent sud-américain. C'était une coutume de son pays d'origine. Cela laissait le temps à l'âme de s'échapper discrètement la nuit suivante.
+Les enterrements ont lieu la veile des nuits sans lune, une idée amenée il y a quelques années par un employé au fort accent sud-américain. C'était une coutume de son pays d'origine. Cela laissait le temps à l'âme de s'échapper discrètement la nuit suivante.
 
 La prochaine nuit, je ne travaillais pas et j'ai proposé de monter la garde pour les prévenir du danger.
 
 
 ## Nuit sans lune
+
+TODO: changer, la procession emmène le mort et le fait passer le fleuve, où l'attende l'ours le clown et les 3 écureuils.
 
 Il est deux heures du matin. Je suis monté dans une baraque de cow-boys dans les arbres, dans l'attraction la plus proche du petit fleuve. J'ai allumé mon portable, me suis connecté au groupe qui permet de communiquer entre nous. J'ai mis mes oreillettes et ai muté le micro.
 
@@ -64,3 +76,10 @@ Je lève la tête   XXXX Les lumières se rapprochent!!
 L'ours alors se penche vers le sac à terre et ouvre les pans de tissu pour en découvrir un corps. de loin on ne sait s'il s'agit d'un homme, d'un enfant ou d'un pantin. Le corps est vite jeté dans la fosse, et la marionnette est remise à sa place.
 
 En face, sur l'autre côté de la rive, les employés en costumes et les figurants sont restés alignés en silence. Maintenant que la marionnette est remise en place, ils commencent à tanguer doucement en rythme. Un chant s'élève entre leurs rangs.
+
+SUITE: Le vigile est toujours là à guetter, il les voit arriver. Il tire sur l'un , qui fuit et tue l'autre d'un coup de pelle
+Il rejoindra la processoin avec sa bien aimée et y rajoutera le corps du vigile tué. Ou simplement il le laissera dans l'eau.
+Peut être qu'il se couchera à côté d'elle et la rejoindra lui aussi l'autre rive pour devenir une marionnette.
+Du ciel à la terre, la plus basse terre.
+
+
