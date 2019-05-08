@@ -10,35 +10,64 @@ Ce fut après six semaines de pluies sans discontinuer que les morts commencère
 
 Le premier fut découvert par Kalvin, le nouveau conducteur du petit train aquatique au Parc de Lost Island.
 
-Il commençait alors sa journée. Son bateau avait eu du mal à démarrer ce matin-là. Mais là, il suivait le rail mécanique tracé dans l'eau.
+Il commençait sa journée. Son bateau avait eu du mal à démarrer ce matin-là. Mais là, il suivait le rail mécanique tracé dans l'eau.
 Il engageait sa machine dans le canal, entre une île artificielle plantée de palmiers homogènes, et de l'autre côté une forêt d'épicéas intercalés entre de petites marionnettes animées.
 
-Puis, alors qu'il se trouvait en plein milieu de ce passage, le bateau s'arrêta. Le moteur tournait encore mais quelque chose avait dû dériver dans l'eau et se glisser entre les rails pour se bloquer sous le bateau.
+Puis, alors qu'il était bien engagé dans ce passage, le bateau s'arrêta. Le moteur tourna encore mais quelque chose avait dû dériver dans l'eau et se glisser entre les rails pour se bloquer sous le bateau.
 Il avait lancé une annonce pour demander aux passagers de ne pas s'inquiéter.
-Il s'est penché par dessus bord et a regardé ce qui bloquait le bateau. Sous la travée, il a vu un crâne d'enfant.
+Il s'était penché par dessus bord et avait regardé ce qui bloquait le bateau. Sous la travée, il a vu un crâne d'enfant.
 
-Kalvin a décroché le téléphone de service sous le tableau de bord et prévenu la direction, qui lui a envoyé des plongeurs déguisés en grenouilles, tandis que lui devait s'assurer que la musique allait continuer à jouer.
+Kalvin a prévenu la direction, qui lui a envoyé des plongeurs déguisés en grenouilles, tandis qu'il devait s'assurer que la musique continue de jouer.
+
 
 ## Chapitre 2. A couvert
-Le héros, le vigile, commence ses tournées. Le Parc est bien humié et irrité par ces découvertes. Ils ne voudraient pas que des romanichelles ne profitent du terrain pour cacher leurs méfaits.
-Il rentre chez lui et sa femme, danseuse acrobate se moque de lui et ils font des cabrioles et tombent du lit.
+> Le héros, le vigile, commence ses tournées. Le Parc est bien humilié et irrité par ces découvertes. Ils ne voudraient pas que des romanichelles ne profitent du terrain pour cacher leurs méfaits.
+> Il rentre chez lui et sa femme, danseuse acrobate se moque de lui et ils font des cabrioles et tombent du lit.
+> Sa femme est une immigrée, sans papiers, mais pas inquiète car elle est employée.
+> Autre possibilité il rentre et son fils est là, ils parlent, il en connait - comme sa femme - un bout sur le parc. Ils vivent ensemble et seuls.
+
+
+Voilà ce que mon chef m'avait raconté, alors que je revenais de notre ronde de surveillance dans le Parc.  
+-- Les hommes grenouilles ont trouvé deux autres morts avec ce premier cadavre. Des adultes.
+-- Sous le petit train aquatique enchanté...
+-- Tu imagines la publicité, si ça se savait? Ils sont devenus fous, à la Direction, alors on va faire plus de rondes ils ont décidé, on veut pas des lascards qui ils nous lâchent leurs cadavres en douce, qu'ils nous les mettent sur les bras, ils nous prennent pour un cimetière gratuit ou quoi? On est pas là pour planquer des meutres.
+-- Vous savez qui c'est les morts?
+-- La police du district fait des analyses, mais ne comptes pas sur eux, vu l'état des cadavres. Mais ils m'ont dit, ils ont pas le même âge, vu la décomposition, tu vois ce que je veux dire?
+J'ai opiné. Pour une fois que mon chef pouvait essayer de paraître intelligent fallait l'encourager.
+-- ça veut dire qu'on va tout de suite leur faire passer le goût du pain, aux salopards. Peut être qu'ils vont recommencer, on sait pas mais on veut pas de ces corps.
+Je lui ai fait remarqué que ça pouvait bien durer des années avant que le cas ne se reproduise. Il aurait mieux valu essayer de trouver qui étaient ces corps, mais mon opinion lui il s'en fichait comme de sa première chemise de vigile.
+
+Le chef m'a alors appris qu'ils allaient organiser des rondes la nuit et j'étais l'heureux élu qui allait commencer la surveillance nocturne. Je l'aurais bien envoyé sur les roses, il m'a bien dit que j'avais le choix, qu'il y avait rien d'obligé. Mais doubler mon salaire je pouvais pas refuser ça. J'avais franchement rien qui m'attendait à la maison, ce soir, comme tous les soirs, sinon la télé et attendre Eurydice, autant prendre un peu de blé et me balader dans le Parc en attendant des romanichelles fantôme.
+
+
+
+> thématique des fantômes?
+
+# Chapitre 2.2
+J'ai laissé un message à Eurydice. Elle allait commencer à travailler à cette heure là. Acrobate, au Parc, ça ne se dérange pas. J'irais peut être la voir aussi tout à l'heure lors de ma tournée de nuit, pour lui expliquer.
+Après la cantine, je suis retourné au bureau et on m'a désigné mon partenaire de nuit. Un petit de l'Est, Dusan (s avec des ailes) il s'appelait, incapable de parler et il essayait même pas, il faut lui accorder ça, il restait l'oeil collé aux résultats du tiercé sur son téléphone. Je le connaissais un peu. J'étais content d'être avec lui, sans raison, juste pour éviter d'avoir un peu de contact humain.
+
+On a tout de suite commencé notre patrouille. Vers 22h on est allé voir la Parade. J'ai vite reconnu Eurydice avec ses ailes de libellules. Elle virevoletait de trapèze en trapèze, rattrapée par un costaud, elle qui était si petite. Les ailes lui allaient bien, on aurait dit qu'elle allait s'envoler.
+
+## Chapitre 2.3
+> Il continue ses patrouilles et est de plus en plus fatigué.
+> Il rentre tard dans la nuit, parle avec Eurydice
+
 
 
 # Chapitre 3
-Découverte de la procession
+> Découverte de la procession
 
 Avec son collègue il est en patrouille et tombe par hasard sur la procession. il fait fuire les gens. Le cadavre est trouvé par terre. Il a eu le temps d'arracher le masque d'une personne et de voir son visage ou de le découvrir.
 
 
 
 # Chapitre 4
-Il apprend que sa femme est tombée. Il court mais trop tard elle est morte en tombant du trapèze.
-Il apprend alors que sa femme va être incinérée, par les lois du Parc.
+> Il apprend que sa femme est tombée. Il court mais trop tard elle est morte en tombant du trapèze.
+> Il apprend alors que sa femme va être incinérée, par les lois du Parc.
 
 # Chapitre 5
-Il décide contacter les gens qui enterrent les morts, maintenant qu'il les connait. Dans une réserve avec plein de trucs toxiques - qu'il utilisera pour se suicider.
-
-
+> Il décide contacter les gens qui enterrent les morts, maintenant qu'il les connait. Dans une réserve avec plein de trucs toxiques - qu'il utilisera pour se suicider.
 
 La pluie descend le long des chemins du labyrinthe d'Alice au Pays des Merveilles. La pluie suit les voies ouvertes, court le long du béton arrondi qui délimite les haies.
 
