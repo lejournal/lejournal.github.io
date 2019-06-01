@@ -8,14 +8,16 @@ categories: littérature atelier
 
 Ce fut après six semaines de pluies sans discontinuer que les morts commencèrent à remonter.
 
-Le premier fut découvert par Kalvin, le nouveau conducteur du petit train aquatique au Parc de Lost Island.
+Le premier fut découvert par Kalvin, le conducteur du petit train aquatique au Parc de Lost Island.
 
-Il commençait sa journée. Comme souvent, son bateau avait eu du mal à démarrer ce matin-là. Mais là, il suivait le rail mécanique tracé dans l'eau.
-Il engageait sa machine dans le canal, entre une île artificielle plantée de palmiers homogènes, et de l'autre côté une forêt d'épicéas intercalés entre de petites marionnettes animées.
+Il commençait sa journée. Comme souvent, son bateau avait eu du mal à démarrer ce matin-là. Mais là, il suivait enfin le rail mécanique tracé dans l'eau.
 
-Puis, alors qu'il était bien avancé dans ce passage, le bateau s'arrêta dans un cahot. Le moteur tournait encore mais quelque chose avait dû dériver dans l'eau et se glisser entre les rails pour se bloquer sous le bateau.
+Il engageait sa machine dans le canal, entre une île artificielle plantée de palmiers homogènes et de l'autre côté une forêt d'épicéas intercalés entre de petites marionnettes animées.
+
+Alors qu'il était bien avancé dans ce passage, le bateau s'arrêta dans un cahot. Le moteur tournait encore mais quelque chose avait dû dériver dans l'eau et se glisser entre les rails pour se bloquer sous le bateau.
+
 Il avait lancé une annonce pour demander aux passagers de ne pas s'inquiéter.
-Il s'était penché par dessus bord et avait regardé ce qui bloquait le bateau. Sous la travée, il a vu un crâne d'enfant.
+Il s'était penché par dessus bord et avait regardé ce qui se passait sous l'eau. Entre la travée et le rail, il a vu un crâne d'enfant.
 
 Kalvin alors a prévenu la direction, qui lui a envoyé des plongeurs déguisés en grenouilles, tandis qu'il devait s'assurer que la musique continue de jouer.
 
@@ -31,57 +33,58 @@ Voilà ce que mon chef m'avait raconté, alors que je revenais de notre ronde de
 
 -- Les hommes grenouilles ont trouvé deux autres morts avec ce premier cadavre. Des adultes.  
 -- Sous le petit train aquatique enchanté...  
--- Tu imagines la publicité, si ça se savait? Ils sont devenus fous, à la Direction, alors on va faire plus de rondes ils ont  décidé, on veut pas des lascards qui ils nous lâchent leurs cadavres en douce, ils nous prennent pour un cimetière gratuit ou quoi? On est pas là pour récupérer tous les morts.  
+-- Tu imagines la publicité, si ça se sait? Ils sont devenus fous, à la Direction, alors on va faire plus de rondes ils ont  décidé, on veut pas que des lascards ils nous lâchent leurs cadavres en douce, ils nous prennent pour un cimetière gratuit ou quoi? On est pas là pour récupérer tous les morts.  
 -- Vous savez qui c'est?  
 -- La police du district fait des analyses, mais ne comptes pas sur eux, vu l'état des cadavres. Mais ils m'ont dit, ils ont pas le même âge, vu la décomposition, tu vois ce que je veux dire?  
-J'ai opiné. Pour une fois que mon chef pouvait essayer de paraître intelligent fallait l'encourager.  
+J'ai opiné. Pour une fois que mon chef pouvait essayer de paraître intelligent il fallait l'encourager.  
 -- ça veut dire qu'on va tout de suite leur faire passer le goût du pain, aux planqueurs de macchabées. S'ils recommencent, je veux qu'ils sachent que ce sont nos terres.  
 Je lui ai fait remarqué que ça pouvait bien durer des années avant que le cas ne se reproduise. Il aurait mieux valu essayer de trouver qui étaient ces corps, mais mon opinion lui il s'en fichait comme de sa première chemise de vigile.  
 
-Le chef m'a alors appris qu'ils allaient organiser des rondes la nuit et j'étais l'heureux élu qui allait commencer la surveillance nocturne. Je l'aurais bien envoyé sur les roses, il m'a bien dit que j'avais le choix, qu'il y avait rien d'obligé. Mais doubler mon salaire je pouvais pas refuser ça. J'avais rien qui m'attendait à la maison, ce soir, comme tous les soirs, sinon la télé et attendre Sylphide, autant prendre un peu de blé et me balader dans le Parc en attendant des romanichelles ou des fantômes.  
+Le chef m'a alors appris qu'ils allaient organiser des rondes la nuit et j'étais l'heureux élu qui allait commencer la surveillance nocturne. Il m'a bien dit que j'avais le choix, qu'il y avait rien d'obligé. Je l'aurais bien envoyé sur les roses. Mais doubler mon salaire je pouvais pas refuser ça. J'avais rien qui m'attendait à la maison, ce soir, comme tous les soirs, sinon la télé et attendre Sylphide, autant prendre un peu de blé au passage et me balader dans le Parc en attendant de faire peur à des romanichelles ou des fantômes.  
 
 > thématique des fantômes?
 
 # Chapitre 2.2
 J'ai laissé un message à Sylphide. Elle allait commencer à travailler à cette heure là. Acrobate, au Parc, ça ne se dérange pas. J'irais peut être la voir aussi tout à l'heure lors de ma tournée de nuit, pour lui expliquer.  
-Après la cantine, je suis retourné au bureau et on m'a désigné mon partenaire de nuit. Un petit de l'Est, Dušan il s'appelait, incapable de parler français et il essayait même pas, il faut lui accorder qu'il était franc là dessus, il restait l'oeil collé aux résultats du tiercé sur son téléphone. Je le connaissais un peu. J'étais content d'être avec lui, sans raison, juste pour éviter d'avoir un peu de contact humain.  
 
-On a commencé notre patrouille le soir même. Vers 22h on est allé voir la Parade. J'ai vite retrouvé Sylphide, elle virevoletait de trapèze en trapèze, avec ses ailes de libellules, ou de fée. Elle qui était si petite. Les ailes lui allaient bien, on aurait dit qu'elle allait volait, enfin c'est ce que devait penser le public, elle faisait coucou avec la main.  
+Après la cantine, je suis retourné au bureau et on m'a désigné mon partenaire de nuit. Un petit de l'Est, Dušan il s'appelait, incapable de parler français, il essayait même pas, il faut lui accorder qu'il était honnête là-dessus, il gardait l'oeil collé aux résultats du tiercé sur son téléphone. Je le connaissais un peu. J'étais content d'être avec lui, sans raison, juste pour éviter d'avoir un peu de contact humain.  
+
+On a commencé notre patrouille le soir. Vers 22h on est allé à la Parade. J'ai vite retrouvé le char où était Sylphide, je l'ai admiré, elle virevoletait de trapèze en trapèze, avec ses ailes de fée dans le dos. Elle qui était si petite. Les ailes lui allaient bien, on aurait pu qu'elle allait s'envoler, enfin c'est ce que devait penser le public. Elle a fait coucou avec la main.  
+
 
 Je crois qu'elle m'a vu, j'ai agité la main, lui ai montré le téléphone.  
-Elle s'est élancée dans le vide et tout en un souffle, elle est restée suspendue à danser dans le vide, de trapèze en trapèze, puis elle a disparu derrière un arbre en décor carton plate.  
+Alors à nouveau elle s'est élancée, tout d'un souffle, elle s'est mise à danser dans le vide, de trapèze en trapèze, puis elle a disparu derrière un arbre en décor carton plate.  
 
-Ce soir là je suis rentré vers trois heures du matin, c'était la première fois depuis que j'avais arrêté de boire. Mais là j'avais une excuse, il fallait chasser les saligots qui salissaient notre Parc.  
+Ce soir là je suis rentré vers trois heures du matin, les cheveux trempés. Les vêtements me collaient au corps, mais là j'avais une excuse, une mission, il fallait chasser les saligots qui salissaient notre Parc. Trop vite non plus, tant que je pouvais profiter de la double paie.  
 
 ## Chapitre 2.3
 > Il continue ses patrouilles et est de plus en plus fatigué.
 > Il rentre tard dans la nuit, parle avec Sylphide
 
-Ça durait bien depuis 3 mois maintenant, ces patrouilles de nuit. Au début, j'aimais bien, quand je revenais à l'appartement, Sylphide venait elle aussi de de rentrer après la parade de la Nuit. Elle se moquait de moi, elle me demandait si j'avais quelque chose à raconter, si j'avais été attaqué par des Ours dans la forêt enchantée.  
+Ça durait bien depuis 3 mois maintenant, ces patrouilles de nuit. Au début, j'ai bien aimé. Quand je revenais à l'appartement, Sylphide venait elle aussi de de rentrer après la parade de la Nuit. Elle se moquait de moi, elle me demandait si j'avais quelque chose à raconter, si j'avais été attaqué par des Ours dans la forêt enchantée.  
 -- Je crois que j'ai entendu un petit oiseau, qui essayait de chanter, je lui ai répondu un jour.  
--- Tu devais avoir trop d'eau dans les oreilles! Si tu vois un seul animal dans le Parc à mon avis il est en plastique. Ou c'est un jouet qui est tombé là du grand huit? Tu as dû marcher sur une girafe en plastique.  
--- Mais tu ne trouves pas ça bizarre, qu'ils aient trouvé des morts, j'arrête pas d'y réfléchir, des animaux déjà on n'en voit pas, alors ceux qui laissent leurs cadavres, ils doivent avoir une raison, à mon avis ça peut être que des criminels qui veulent cacher des corps, tu vois. Tu as vu le film Casino?  
+-- Tu devais avoir trop d'eau dans les oreilles! Si tu vois un seul animal à mon avis il est en plastique. Ou c'est un jouet qui est tombé là du grand huit. Tu as dû marcher sur une girafe en plastique.  
+-- Mais tu ne trouves pas ça bizarre, qu'ils aient trouvé des morts, j'arrête pas d'y réfléchir, des animaux déjà on n'en voit pas, alors ceux qui laissent leurs cadavres, ils doivent avoir une raison, à mon avis c'est des criminels qui viennent cacher des corps, tu vois. Tu connais le film Casino?  
 -- Un film de cinéma? C'est gentil de croire que j'ai pu le voir. Tu es adorable des fois.  
--- Las Végas, c'est une ville de casinos.  
--- Comme nous?  
--- Oui, exactement, sans les jeux de hasard. Autour, c'est le désert.  
+-- Las Végas, c'est une ville construite à partir de rien.  
+-- Comme ici!  
+-- Mais avec des casinos, des roulettes, des croupiers. Autour, c'est le désert.  
 -- Comme nous.  
 -- Un désert sec, arrêtes de m'interrompre.  
--- Comme nous.  
+-- Je suis contente de te troubler.
 -- Tu es tellement maline, Anna Pavlovla.  
--- Je suis contente de te troubler. Mais au moins si tu veux jouer, respectes mon nom d'artiste, s'il te plaît. Comment je m'appelle? Tu t'en souviens?  
--- Sylphide.  
--- Oui, fée Sylphide, pour vous servir.  
--- Enchanté. Et bien, chère fée Sylphide, autour de Las Végas, ils enterraient les cadavres des gens qu'ils ont assissiné. Tu imagines et si ça arrive dans le Parc?  
+-- Ah mais dis! Respectes mon nom d'artiste, au moins, je ne suis pas n'importe qui, par ici.  
+-- Enchanté. Et bien, petite fée, kje vias te dire, autour de Las Végas, ils enterraient les cadavres des gens qu'ils avaient assassiné. Je suis sûr que c'est ce qui arrive dans le Parc.  
 -- Mais qui te dit que ces gens ont été tués? Qu'est ce que tu en sais?  
 J'avoue que j'en sais rien.  
--- Vas pas te mettre des idées en tête toi, tu es comme les autres, ils te donnent un petit costume de shérif ils te montent la tête avec leurs beaux discours et tu crois que tu arrêter des meurtriers? Tu vas leur faire peur avec ton petit pistolet en plastique?  
+-- Vas pas te mettre des idées en tête toi, tu es comme les autres, ils te donnent un petit costume de shériff ils te montent la tête avec leurs histoires et tu crois que tu arrêter des meurtriers? Tu crois que tu vas leur faire peur avec ton petit pistolet en plastique?  
 Elle saute de sa chaise et va s'asseoir sur le lit les genoux recroquevillés sous le menton. Visiblement elle ne veut plus me parler.  
   
-Je suis allé lui préparer un thé aux herbes en attendant qu'elle se calme.  
--- Merci, je ne devrais pas te parler ainsi, elle m'a dit quand je lui ai amené ton mug. Mais... Tu ne sais rien, c'est incroyable. Tu crois tout comprendre, et pourtant ...  
+Je suis allé lui préparer un thé aux herbes.  
+-- Merci, je ne devrais pas te parler ainsi, elle m'a dit quand je lui ai amené son mug. Mais, tu sais... Tu ne sais rien. C'est pas croyable, tu parcours depuis des années le parc dans tous les sens et tu ne sais rien, tu ne vois rien et pourtant ...  
 -- Tu es magique.  
--- Écoutes, je suis peut être immigrée mais tes blagues nulles je les comprends très bien, alors là, c'est à toi de t'excuser.  
+-- Alors là, tu vois, je suis peut être immigrée mais tes blagues nulles je les comprends très bien, alors là, c'est à toi de t'excuser.  
+
 Elle s'est levée et a cherché à me frapper avec la paume de samain, mais le lit trop mou s'est enfoncé sous son tout petit poids et son mug lui a glissé des mains et a volé dans la pièce. On s'est brûlé tous les deux avec le thé.  
   
 # Chapitre 3  
