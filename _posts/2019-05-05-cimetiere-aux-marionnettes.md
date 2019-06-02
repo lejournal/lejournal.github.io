@@ -98,13 +98,38 @@ J'ai fait signe à mon collègue de s'arrêter.
 J'ai éteint la lampe torche et on s'est caché, dans le creux d'un décor d'arbre, sous un projecteur.  
 Le bruit se rapprochait. Un bruissement compacte, discret et lent. Puis de ma cachette, un peu plus bas, je vis passer devant moi quatre personnes. Les qautre semblaient grands. Ils portaient des masque de chevaux. Ils avancaient en rectangle et autour d'eux, ils portaient une civière recouverte d'un linge immaculé. Is avançaient doucement, prenant soin de ne pas faire de bruit. Ils ne parlaient pas, ils communiquaient en bougeant la tête mais sans qu'un son ne sorte. J'ai alors compris qu'ils devaient porter un mort.  
 Puis un autre bruit plus léger, disparate, et désordonné s'est élevé. Derrière eux, il y avait plusieurs personnes. Elle portaient toutes un masque des personnages du Parc. Un chien, un Ecureuil, un Voleur, Roi d'Egypte... Ils suivaient les chevaux, en rang de deux et au milieu d'eux, un personnage en blanc tenait par dessus sa tête ce qui ressemblait à un épouvantail, un autre personnage, mais de papier et chiffons, avec un masque de Pirate, exactement comme ceux que l'on vend dans les boutiques du Parc.  
-Cette procession avançait doucement vers la Rivière. Je n'ai pas eu le temps de terminer de les observer. Dans la cachette à côté de moi, Dušan est sorti projeté par un ressort, il s'est mis à crier et à foncer vers la procession. J'ai pris ma respiration et suis aussi sorti par solidarité, en criant et en beuglant. Tu parles d'un efficace. On n'avait pas fait dix pas que tout le monde se barrait en courant dans tous les sens. Dušan commençait à courser après les chevaux avec leur brancard. J'ai suivi un gars de la foule qui soivait, le premier, une sorte de prêtre égyptien qiu a soulevé sa robe et s'est mis à courir entre les fourrés dans tous les sens. Je le suivais, je commençais même à le rattraper quand il s'est pris les pieds dans un fil électique et il s'est cassé la gueule. Son masque a volé. Je me suis jeté sur son dos. J'ai saisi son épaule et l'ai cogné contre une buche et j'ai commencé à tordre son bras. J'ai vu son visage. C'était bien quelqu'un que je connaissais. Le mec qui tient le stand de cafés.  
+Cette procession avançait doucement vers la Rivière. Je n'ai pas eu le temps de terminer de les observer. Dans la cachette à côté de moi, Dušan est sorti projeté par un ressort, il s'est mis à crier et à foncer vers la procession. J'ai pris ma respiration et suis aussi sorti par solidarité, en criant et en beuglant. Tu parles d'un efficace. On n'avait pas fait dix pas que tout le monde se barrait en courant dans tous les sens. Dušan commençait à courser après les chevaux avec leur brancard. J'ai suivi un gars de la foule qui soivait, le premier, une sorte de prêtre égyptien qiu a soulevé sa robe et s'est mis à courir entre les fourrés dans tous les sens. Je le suivais, je commençais même à le rattraper quand il s'est pris les pieds dans un fil électique et il s'est cassé la gueule. Son masque a volé. Je me suis jeté sur son dos. J'ai saisi son épaule et l'ai cogné contre une buche et j'ai commencé à tordre son bras.  
+J'ai vu son visage. C'était bien quelqu'un que je connaissais. Le mec qui tient le stand de cafés.  
+
 J'ai alors senti un choc lourd sur ma nuque. Ma tête est partie en avant et j'ai perdu conscience.  
+
+# Chapitre xxx
+> Réveil après la poursuite.
+> copie du manuscrit
+Je me suis réveillé avec l'impression qu'on me tirait par les cheveux, à droite, à gauche. C'était Dušan.
+-- Tu vas comment, toi, dis?  
+-- Comme un sac de pommes de terres.
+
+Il a souri. Il avait le sourire chaleureux quand il le voulait. "Les autres, partis, toi, boum, frappés, eux."  
+J'étais encore bien sonné, mais pas complètement con non plus.
+
+Pas question que j'aille me faire ausculter le cerveau par une infirmière inquiète, c'était un coup à perdre trois mois de salaire. Ils pourraient même bien me virer. Je n'avais pas non plus envie de raconter cette nuit à la hiérarchie.
+" Ça va très bien aller, je peux me relever tout seul". C'était pas tout à fait vrai, Dušan m'a regardé patauger un peu par terre, mais fois debout je me suis avancé sous un arbre et ai secoué les branches au dessus de moi. Des gouttes chaudes sont tombées sur mon visage.  
+Je me suis essuyé et lui ai lancé: "Je ne sais pas ce qu'on va raconter au chef. Si on dit qu'on n'a pas pu les arrêter ils vont nous virer et ils vont vouloir doubler les rondes."  
+
+Je ne lui ai pas dit que j'avais reconnu mon adversaire le Roi d'Egypte. Dušan il comprenait tout bien.
+
+Le lendemain, on a fait notre ronde comme d'habitude. On a été prendre le café. J'ai tout de suite repéré le gars de la veille. Quand il m'a tendu une touillette, ses yeux se sont accrochés aux miens, j'ai su que je ne dirais rien et lui non plus.
+
+
+
+
 
 
 # Chapitre 4  
 > Il apprend que sa femme est tombée. Il court mais trop tard elle est morte en tombant du trapèze.  
 > Il apprend alors que sa femme va être incinérée, par les lois du Parc.  
+
 
 
 # Chapitre 5  
