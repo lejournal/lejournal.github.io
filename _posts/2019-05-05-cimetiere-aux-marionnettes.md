@@ -103,7 +103,7 @@ J'ai vu son visage. C'était bien quelqu'un que je connaissais. Le mec qui tient
 
 J'ai alors senti un choc lourd sur ma nuque. Ma tête est partie en avant et j'ai perdu conscience.  
 
-# Chapitre xxx
+# Chapitre 4
 > Réveil après la poursuite.
 > copie du manuscrit
 Je me suis réveillé avec l'impression qu'on me tirait par les cheveux, à droite, à gauche. C'était Dušan.
@@ -122,15 +122,42 @@ Je ne lui ai pas dit que j'avais reconnu mon adversaire le Roi d'Egypte. Dušan 
 Le lendemain, on a fait notre ronde comme d'habitude. On a été prendre le café. J'ai tout de suite repéré le gars de la veille. Quand il m'a tendu une touillette, ses yeux se sont accrochés aux miens, j'ai su que je ne dirais rien et lui non plus.
 
 
+Les tournées de la soirée devenaient improbables humides silencieuses. On s'est mis à traîner de plus en plus avec les gens du ménage. Il pleuvait tellement, le soir, on restait longtemps sous le hauvent, Dušan les yeux sur son smartphone, il faisait son tiercé. Je comptais et recomptais mon argent. Dans un an je pourrai proposer à Sylphide de chercher un appartement ensemble, avec une chambre en plus. Elle parlait parfois de l'avenir ensemble, en riant. Elle aimait tellement faire l'artiste mais ça l'empéchait de penser à avoir des enfants. Elle parlait de l'Ukraine qu'elle avait quitté à 18 ans.  
+Moi je voulais juste qu'elle trouve un avenir ici et je lui servirais de guide, d'aide. Elle avait la capacité de changer de poste, de devenir responsable d'une attraction, mais elle me rétorquait qu'ils ne prendraient jamais une sans papier pour travailler au sol. Je lui disais qu'on pouvait trouver une solution administrative ensemble, mais elle me trouvait trop ballot et puis elle se trouvait trop nerveuse pour accueillir les clients.
 
 
-
-
-# Chapitre 4  
+# Chapitre 5  
 > Il apprend que sa femme est tombée. Il court mais trop tard elle est morte en tombant du trapèze.  
 > Il apprend alors que sa femme va être incinérée, par les lois du Parc.  
 
+-- Viens vite.  
+J'étais en train de lire le journal. C'est une des femmes qui s'occupe de rammasser les déchêts qui m'a prévenu. J'ai tout de suite pensé au pire, question de caractère. J'ai sauté sur mes pieds et j'ai couru vers l'allée, à droite, puis encore à droite, j'aurais pas du prendre la Grande Avenue à cette heure là elle était bondée, pour avancer c'était impossible.
 
+J'ai commencé à bousculer les gens, les clients, à l'ancienne, coup d'épaule gauche, je m'infiltre entre deux, pivot sur une jambe, mouvement du bras pour dégager de deux allemands, tu parles d'une brasse coulée, après 10 mètres je faisais du sur place et la parade terminait de passer devant moi.  
+Je voyais les chars au loin s'éloigner, les gens ont commencé à refluer et moi dans le flot je m'agitais en vain, je reculais.
+
+J'ai pu atteindre l'infirmerie mais c'était trop tard. Sylphide s'était jetée dans l'air en voulant attraper un barreau sa main avait glissée, elle est partie de côté et elle est tombée en vrille sur le décor enchanté. Elle a attéri sur un lapin mécanique juste en dessous.  
+Pendant ce temps les animaux continuaient de s'agiter. Son char était coincé, les touristes au premier rang avaient crié mais le char a continué sa route jusqu'à son hangar final.
+
+
+J'étais la tête entre les genoux, j'attendais que quelqu'un vienne me chercher. N'importe qui. Je pensais que j'aurais droit à une annonce officielle, de ce que m'avait dit une infirmière.
+
+Mes vêtements était trempés, mes pieds gisaient dans une flaque d'eau. Mes cheveux n'arrivaient pas à sécher, j'avais le visage couvert de pluie. Ça m'arrangeait je ne voulais plus bouger, je voulais juste rester les yeux plantés dans le carrelage trempé, le nez qui coule et les doigts gelés.
+
+Dušan m'avait suivi à l'infirmerie, puis il était allé finir la ronde en vitesse, il a même été badger pour moi. Il a pris un gros risque à ce moment là. Je ne le savais pas mais il y a des gens de la sécurité qui surveillent la pointeuse. Il aurait pu se faire virer et moi avec.
+
+C'est ce qu'il m'a raconté le soir chez moi quand il m'a raccompagné. On a bu de la bière en hommage à ma petite trapéziste. Quand on a fini la bouteille de whisky je me suis mis à chanter. Dušan m'a écouté avec un sourire immobile.
+
+
+# Chapitre 6  
+Je ne savais pas comment allait se passer les jours prochains. Toutes ces nuits de ronde, tous ces fantômes que je poursuivais. Je pensais aux nuits à marcher dans la nuit, ces nuits silencieuses à rêver.
+
+Je n'arrive pas à réfléchir aux jours prochains. Je pense à ces nuits à marcher dans la nuit, à poursuivre mes rêves et à chasser des fantômes. Lorsque je faisais des rondes au moins mon esprit s'évadait.
+ 
+Alors je reste assis chez moi, sans dormir, devant mes yeux je vois passer et repasser les arbres de la forêt, les nuits dans les chemains, à marcher sans but sinon effrayer des fantômes qui transportent des morts vers un autre lieu.  
+
+je repense à ces moments où dans la forêt, je révais à une nouvelle vie et maintenant que ces rêves
+> (... A Continuer à recopier...)
 
 # Chapitre 5  
 > Il décide contacter les gens qui enterrent les morts, maintenant qu'il les connait. Dans une réserve avec plein de trucs toxiques - qu'il utilisera pour se suicider.  
