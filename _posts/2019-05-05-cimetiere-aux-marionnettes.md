@@ -156,8 +156,51 @@ Je n'arrive pas à réfléchir aux jours prochains. Je pense à ces nuits à mar
  
 Alors je reste assis chez moi, sans dormir, devant mes yeux je vois passer et repasser les arbres de la forêt, les nuits dans les chemains, à marcher sans but sinon effrayer des fantômes qui transportent des morts vers un autre lieu.  
 
-je repense à ces moments où dans la forêt, je révais à une nouvelle vie et maintenant que ces rêves
-> (... A Continuer à recopier...)
+je repense à ces moments où dans la forêt, je révais à une nouvelle vie et maintenant que ces rêves n'ont plus de sens, je suis ici, à repasser en esprit par tous les chemins du Parc d'attractoin, les raccourcis entre les bâtiments, les chemins qui mènent d'une attraction à une autre entre deux bouts de nature reconstituée. La réalité de la mort de Sylphide a frappé mon rêve et l'a laissé vide et vain. Je suis seul avec ce rêve périmé.  
+Et pourtant mon esprit ne peut plus quitter ces nuits, comme si ces rondes inutiles, à la recherche de fantômes, étaient devenues la seule réalité qui me reste encore, réalité devenue si vaine qu'elle est ramenée à rien d'autre qu'elle même. Les moments où je révais de construire un avenir pour nous, pendant que Sylphide volait dans les airs pour les regards et les appareils photos des visiteurs, peut-être avaient-ils été les plus intenses de notre vie à tous les deux.
+
+Le réveil sonne, il faut partir.  
+Faire ma ronde, marcher dans le Parc, explorer toute sa géographie sans jamais sortir de ses limites, et quand la nuit sera plus avancée je reviendrai ici et je m'assierai sans rêve, à laisser devant mes yeux ouverts le paysage défiler. Au fond de moi je sais tellement que Sylphide allait un jour tomber, que cela ne pouvait pas durer, c'est comme si sa mort n'était que la confirmation que notre vie a été une promenade perdue dans la nuit, un instant suspendu.
+
+Je vais me doucher, mettre mon costume, serrer mon ceinturon, placer à droite mon pistolet en palstique, à gauche ma matraque électrique. Puis me peigner mettre ma casquette de policier et sortir, prendre le train, puis du train au bureau. J'irai prendre mes consignes aujourd'hui. Et ainsi garder la sécurité des gens et des biens, l'âme elle aussi à nue, dehors, frappée par les intempéries.
+
+Sylphide partie, il me reste la réalité de ma vie et le souvenir d'un avenir.
+
+# Chapitre 6.2
+Au bureau, je suis convoqué par mon supérieur. C'est la seconde fois en moins de six mois qu'il me parle, je suis intrigué. J'espère qu'il n'a rien appris de notre intervention râtée il y a quelques semaines.
+Il s'asseoit derrière son bureau, ouvre un tiroir, le referme. Il a déjà devant lui une feuille et même un stylo.
+"Je tenais à te présenter au nom de tous les castmember du Parc toutes nos plus sincères condoléances."  
+Je vois sur le papier à l'envers, quelques phrases griffonnées, dispatchés en trois points, sous une dizaine de lignes informatives sorties de l'imprimante.
+La Direction savait donc pour ma relation avec Sylphide? Pourtant il n'y avait rien d'officiel entre elle et moi. Elle avait son propre appartement, dans une autre ville que la mienne, on n'était pas mariés, on ne travaillait pas ensemble et on ne fréquentait pas les mêmes fêtes lors des pots de service à la fin de l'année.  
+Je suis chaque jour étonné que lorsque l'on travaille à la Sécurité, on ne sait jamais rien des vraies informations.  
+"Irina était une artiste très appréciée ici", continue mon chef. S'il savait comme elle détestait qu'on l'appelle par son vrai nom.
+"Les gens de la Direction voudraient contacter sa famille. Mais voilà, on n'a pas d'adressse. Est-ce que tu sais toi si Irina était toujours en contact avec le pays?"  
+Elle l'était mais je n'avais pas plus de détails qu'eux.
+-- C'est bien compliqué tout ça, on voudrait renvoyer son urne dans son pays."
+-- Sylphide a été incinérée?
+-- Elle va être incinérée, oui. Comme tu l'as dit toi même on ne connait personne de sa famille, c'est la procédure dans son cas. Tu vois quand quelqu'un meurt on regarde qui est la personne de contact et ça va vite en général, c'est réglé en quelques coups de fil. Avec les immigrés il y a un trou dans la raquette, pour eux avant ça passait par les ambassades mais tu vois ce que je veux dire, ils répondaient toujours en retard, et la vérité ils s'en occupaient pas. Du coup la procédure a changé, c'est devenu une procédure unique, quand on ne sait pas à qui s'adresser, on fait les choses nous même et tout le monde est content.  
+-- Qu'est ce que tu me racontes? Comment veux tu que les gens soient contents?  
+-- Dans les bureaux je veux dire, ils n'ont plus à téléphoner à tous les consulats qui ne répondaient jamais et tu sais les gens isl parlaient jamais la même langue, si tu savais le nombre d'étrangers qui ne parlent pas notre langue, c'est ma femme qui m'a raconté, elle faisait ça au début, appeler, quand elle a commencé ici. Maintenant elle est au marketing, les petits cadeaux qu'on peut acheter dans les boutiques, tu sais ces petites saloperies que tu reçois et que tu jettes directement. Le porte clé qui clignote, par exemple, c'est elle.
+-- Je peux m'occuper de Sylphide, je lâche.
+
+Mon chef s'arrête une seconde, se penche vers moi, joint les mains.
+"Rien ne t'oblige. Tu sais la politique de la maison. Je faut que tu te sentes libre."
+
+Je veux m'en occuper. J'évite le regard de mon chef. Je sens qu'il est content de lui. Ça devait être le troisième point sur sa liste.
+
+# Chapitre 7
+Je me suis retrouvé à arpenter les blocs administratifs derrière la Grande Église, à la recherche de la morgue. J'avais l'adresse que m'avait donné mon chef. Et un badge provisoire autour du cou pour circuler dans ce secteur. Ici les bâtiments sont droits, gris, tous de la même hauteur, deux étages. Ils sont cachés du public par le décor de la Grande Église.  
+J'ai essayé de demander plusieurs fois mon chemin. Les gens m'ont ignoré ils sont passés devant moi en faisant semblant de ne pas m'entendre ni me voir. Certains se sont arrêtés et ils m'ont indiqué avec un grand sourire un chemin compliqué et difficile à comprendre qui chaque fois me ramenait à l'entrée du complexe administratif.
+
+> Continuer à recopier le manuscrit
+
+
+
+
+
+
+
+
 
 # Chapitre 5  
 > Il décide contacter les gens qui enterrent les morts, maintenant qu'il les connait. Dans une réserve avec plein de trucs toxiques - qu'il utilisera pour se suicider.  
