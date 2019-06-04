@@ -4,6 +4,9 @@ title:  "Le cimetière aux marionnettes"
 date:   2019-04-22 01:16:36 +0100
 categories: littérature atelier
 ---
+
+# Le cimetière aux marionnettes
+
 ## Au dessous de l'eau
 
 Ce fut après six semaines de pluies sans discontinuer que les morts commencèrent à remonter.
@@ -23,11 +26,6 @@ Kalvin alors a prévenu la direction, qui lui a envoyé des plongeurs déguisés
 
 
 ## Chapitre 2. A couvert
-> Le héros, le vigile, commence ses tournées. Le Parc est bien humilié et irrité par ces découvertes. Ils ne voudraient pas que des romanichelles ne profitent du terrain pour cacher leurs méfaits.
-> Il rentre chez lui et sa femme, danseuse acrobate se moque de lui et ils font des cabrioles et tombent du lit.
-> Sa femme est une immigrée, sans papiers, mais pas inquiète car elle est employée.
-> Autre possibilité il rentre et son fils est là, ils parlent, il en connait - comme sa femme - un bout sur le parc. Ils vivent ensemble et seuls.
-
 
 Voilà ce que mon chef m'avait raconté, alors que je revenais de notre ronde de surveillance dans le Parc.  
 
@@ -44,7 +42,7 @@ Le chef m'a alors appris qu'ils allaient organiser des rondes la nuit et j'étai
 
 > thématique des fantômes?
 
-# Chapitre 2.2
+## Chapitre 2.2
 J'ai laissé un message à Sylphide. Elle allait commencer à travailler à cette heure là. Acrobate, au Parc, ça ne se dérange pas. J'irais peut être la voir aussi tout à l'heure lors de ma tournée de nuit, pour lui expliquer.  
 
 Après la cantine, je suis retourné au bureau et on m'a désigné mon partenaire de nuit. Un petit de l'Est, Dušan il s'appelait, incapable de parler français, il essayait même pas, il faut lui accorder qu'il était honnête là-dessus, il gardait l'oeil collé aux résultats du tiercé sur son téléphone. Je le connaissais un peu. J'étais content d'être avec lui, sans raison, juste pour éviter d'avoir un peu de contact humain.  
@@ -58,8 +56,6 @@ Alors à nouveau elle s'est élancée, tout d'un souffle, elle s'est mise à dan
 Ce soir là je suis rentré vers trois heures du matin, les cheveux trempés. Les vêtements me collaient au corps, mais là j'avais une excuse, une mission, il fallait chasser les saligots qui salissaient notre Parc. Trop vite non plus, tant que je pouvais profiter de la double paie.  
 
 ## Chapitre 2.3
-> Il continue ses patrouilles et est de plus en plus fatigué.
-> Il rentre tard dans la nuit, parle avec Sylphide
 
 Ça durait bien depuis 3 mois maintenant, ces patrouilles de nuit. Au début, j'ai bien aimé. Quand je revenais à l'appartement, Sylphide venait elle aussi de de rentrer après la parade de la Nuit. Elle se moquait de moi, elle me demandait si j'avais quelque chose à raconter, si j'avais été attaqué par des Ours dans la forêt enchantée.  
 -- Je crois que j'ai entendu un petit oiseau, qui essayait de chanter, je lui ai répondu un jour.  
@@ -87,9 +83,7 @@ Je suis allé lui préparer un thé aux herbes.
 
 Elle s'est levée et a cherché à me frapper avec la paume de samain, mais le lit trop mou s'est enfoncé sous son tout petit poids et son mug lui a glissé des mains et a volé dans la pièce. On s'est brûlé tous les deux avec le thé.  
   
-# Chapitre 3  
-> Découverte de la procession  
-> Avec son collègue il est en patrouille et tombe par hasard sur la procession. il fait fuire les gens. Le cadavre est trouvé par terre. Il a eu le temps d'arracher le masque d'une personne et de voir son visage ou de le découvrir.  
+## Chapitre 3  
   
 Le soir, je commençais à sentir la fatigue du double travail. La journée à stationner auprès du stand de pâte à modeler. Et le soir les rondes sous la pluie, dans les bois, sous les manèges. On croisait les gens du ménage, toutes immigrées. Au début, ils nous avaient indiqué quelques endroits pour se cacher de la pluie et un peu se reposer, notamment au café près du Labyrinthe. Mais assez vite ils nous ont évité, ils se parlaient entre eux et nous ignoraient.  
   
@@ -103,9 +97,8 @@ J'ai vu son visage. C'était bien quelqu'un que je connaissais. Le mec qui tient
 
 J'ai alors senti un choc lourd sur ma nuque. Ma tête est partie en avant et j'ai perdu conscience.  
 
-# Chapitre 4
-> Réveil après la poursuite.
-> copie du manuscrit
+## Chapitre 4
+
 Je me suis réveillé avec l'impression qu'on me tirait par les cheveux, à droite, à gauche. C'était Dušan.
 -- Tu vas comment, toi, dis?  
 -- Comme un sac de pommes de terres.
@@ -126,9 +119,7 @@ Les tournées de la soirée devenaient improbables humides silencieuses. On s'es
 Moi je voulais juste qu'elle trouve un avenir ici et je lui servirais de guide, d'aide. Elle avait la capacité de changer de poste, de devenir responsable d'une attraction, mais elle me rétorquait qu'ils ne prendraient jamais une sans papier pour travailler au sol. Je lui disais qu'on pouvait trouver une solution administrative ensemble, mais elle me trouvait trop ballot et puis elle se trouvait trop nerveuse pour accueillir les clients.
 
 
-# Chapitre 5  
-> Il apprend que sa femme est tombée. Il court mais trop tard elle est morte en tombant du trapèze.  
-> Il apprend alors que sa femme va être incinérée, par les lois du Parc.  
+## Chapitre 5  
 
 -- Viens vite.  
 J'étais en train de lire le journal. C'est une des femmes qui s'occupe de rammasser les déchêts qui m'a prévenu. J'ai tout de suite pensé au pire, question de caractère. J'ai sauté sur mes pieds et j'ai couru vers l'allée, à droite, puis encore à droite, j'aurais pas du prendre la Grande Avenue à cette heure là elle était bondée, pour avancer c'était impossible.
@@ -149,7 +140,7 @@ Dušan m'avait suivi à l'infirmerie, puis il était allé finir la ronde en vit
 C'est ce qu'il m'a raconté le soir chez moi quand il m'a raccompagné. On a bu de la bière en hommage à ma petite trapéziste. Quand on a fini la bouteille de whisky je me suis mis à chanter. Dušan m'a écouté avec un sourire immobile.
 
 
-# Chapitre 6  
+## Chapitre 6  
 Je ne savais pas comment allait se passer les jours prochains. Toutes ces nuits de ronde, tous ces fantômes que je poursuivais. Je pensais aux nuits à marcher dans la nuit, ces nuits silencieuses à rêver.
 
 Je n'arrive pas à réfléchir aux jours prochains. Je pense à ces nuits à marcher dans la nuit, à poursuivre mes rêves et à chasser des fantômes. Lorsque je faisais des rondes au moins mon esprit s'évadait.
@@ -166,7 +157,7 @@ Je vais me doucher, mettre mon costume, serrer mon ceinturon, placer à droite m
 
 Sylphide partie, il me reste la réalité de ma vie et le souvenir d'un avenir.
 
-# Chapitre 6.2
+## Chapitre 6.2
 Au bureau, je suis convoqué par mon supérieur. C'est la seconde fois en moins de six mois qu'il me parle, je suis intrigué. J'espère qu'il n'a rien appris de notre intervention râtée il y a quelques semaines.
 Il s'asseoit derrière son bureau, ouvre un tiroir, le referme. Il a déjà devant lui une feuille et même un stylo.
 "Je tenais à te présenter au nom de tous les castmember du Parc toutes nos plus sincères condoléances."  
@@ -188,26 +179,39 @@ Mon chef s'arrête une seconde, se penche vers moi, joint les mains.
 
 Je veux m'en occuper. J'évite le regard de mon chef. Je sens qu'il est content de lui. Ça devait être le troisième point sur sa liste.
 
-# Chapitre 7
+## Chapitre 7
 Je me suis retrouvé à arpenter les blocs administratifs derrière la Grande Église, à la recherche de la morgue. J'avais l'adresse que m'avait donné mon chef. Et un badge provisoire autour du cou pour circuler dans ce secteur. Ici les bâtiments sont droits, gris, tous de la même hauteur, deux étages. Ils sont cachés du public par le décor de la Grande Église.  
 J'ai essayé de demander plusieurs fois mon chemin. Les gens m'ont ignoré ils sont passés devant moi en faisant semblant de ne pas m'entendre ni me voir. Certains se sont arrêtés et ils m'ont indiqué avec un grand sourire un chemin compliqué et difficile à comprendre qui chaque fois me ramenait à l'entrée du complexe administratif.
 
-> Continuer à recopier le manuscrit
+J'ai décidé de prendre les rues au hasard, je tournais de temps en temps à droite, de temps en temps à gauche, vers les rues de plus en plus sombres. Au détour d'un chemin en terre qui montait, entre deux bâtiments en béton, une impasse au sol boueux et lourd. Au mur, une pancarte écrit en jaune sur fond noir, c'était bien la morgue.
+
+La porte en métal est lourde et traîne par terre quand on la pousse. Je me suis retrouvé dans une imeense salle blanche et vide avec des dizaines de personnes assises sur des chaises en plastique alignées le long de tous les murs. En me tournant, j'ai repéré ce qui resssemblait à un comptoir d'accueil et m'y suis dirigé. Derrière le comptoir, l'employé était très occupé à ranger des papiers en paquets. Après cinq minutes d'agitation, il a levé la tête et soupiré.  
+-- Alors, c'est pour qui?  
+Il criait presque.  
+J'ai montré le papier que m'avait préparé le chef. L'employé a pris le papier en le froissant et me l'a rendu en agrafant un ticket avec un numéro.  
+J'ai regardé le papier et l'employé tour à tour. Il s'est mis debout et m'a montré du bras les chaises derrière vous. On vous appelera.
+
+J'ai serré le papier et me suis retourné. J'ai découvert quelques places libres et isolées près d'un coin.  
+On m'a très vite appelé. Les gens sur les chaises continuaient leurs occupations, sans faire attention les uns aux autres.  
+Dans une pièce étroite qui sent le moisi, un petit bureau en bois collé contre le mur, avec une loupe sur un bras articulé et beaucoup de papiers en désordre. Un homme en blouse m'a surpris en surgissant à ma droite, et m'a pris les papiers des mains. Il l'a lu et m'a jeté un regard: Mais vous devez le signer ce papier, c'est important. On s'est dirigé tous les deux vers le bureau. On n'a pas pu s'asseoir, il n'y avait pas de fauteuil ni chaise. L'homme a poussé un paquet de documents de la manche et a posé grossièrement le papier sur le dessus.
+"Allez y signez, en bas à droite. Vous savez, c'est pour vous, tout ça." J'ai signé le papier sans rien relire.
+
+Il m'a alors jeté: Attendez moi ici et il a disparu. Je me suis retrouvé seul. Je me sentais humilié, jeté en pâture. L'homme est réapparu dans un tintamarre métalique. Il poussait un bracard en acier. Sur le dessus, un grand sac blanc, assez grand pour contenir un être humain.
+"Écoutez si j'étais vous, je me dépécherais. C'est ce que je vous conseillle, mais je ne suis pas vous. Vous n'êtes pas censés être ici à récupérer les corps des morts ainsi, mais les responsables ne sont pas là et je n'ai pas de droit de refuser votre demande."
+La porte que vous voyez à droite débouche directement dehors, dépéchez vous, je vous aide.
+
+Je n'ai m^eme pas eu le temps de vérifier le contenu du sac, il m'a aidé à le mettre sur le dos et je me suis glissé dehors, par l'ouverture de la porte, qui s'est tout de suite refermée sur moi dans un bruit métallique.
 
 
 
+## Chapitre 8  
 
-
-
-
-
-
-# Chapitre 5  
 > Il décide contacter les gens qui enterrent les morts, maintenant qu'il les connait. Dans une réserve avec plein de trucs toxiques - qu'il utilisera pour se suicider.  
+> Pas fini...
   
 La pluie descend le long des chemins du labyrinthe d'Alice au Pays des Merveilles. La pluie suit les voies ouvertes, court le long du béton arrondi qui délimite les haies.  
   
-Il pleut depuis tellement de jours et de nuits que le labyrinthe est devenu une attraction initiatique, qui se commence les mollets dans l'eau et se finit avec de l'eau bien au dessus de la taille. Bref, plus personne n'y va.  
+Il pleut depuis des nuits. Le labyrinthe est devenu une attraction initiatique, qui se commence les mollets dans l'eau et se finit avec de l'eau bien au dessus de la taille.  
   
 Les enterrements ont lieu la veile des nuits sans lune, une idée amenée il y a quelques années par un employé au fort accent sud-américain. C'était une coutume de son pays d'origine. Cela laissait le temps à l'âme de s'échapper discrètement la nuit suivante.  
   
@@ -216,7 +220,7 @@ La prochaine nuit, je ne travaillais pas et j'ai proposé de monter la garde pou
   
 ## Nuit sans lune  
   
-TODO: changer, la procession emmène le mort et le fait passer le fleuve, où l'attende l'ours le clown et les 3 écureuils.  
+> TODO: changer, la procession emmène le mort et le fait passer le fleuve, où l'attende l'ours le clown et les 3 écureuils.  
   
 Il est deux heures du matin. Je suis monté dans une baraque de cow-boys dans les arbres, dans l'attraction la plus proche du petit fleuve. J'ai allumé mon portable, me suis connecté au groupe qui permet de communiquer entre nous. J'ai mis mes oreillettes et ai muté le micro.  
   
@@ -242,8 +246,8 @@ L'ours alors se penche vers le sac à terre et ouvre les pans de tissu pour en d
   
 En face, sur l'autre côté de la rive, les employés en costumes et les figurants sont restés alignés en silence. Maintenant que la marionnette est remise en place, ils commencent à tanguer doucement en rythme. Un chant s'élève entre leurs rangs.  
   
-SUITE: Le vigile est toujours là à guetter, il les voit arriver. Il tire sur l'un , qui fuit et tue l'autre d'un coup de pelle  
-Il rejoindra la processoin avec sa bien aimée et y rajoutera le corps du vigile tué. Ou simplement il le laissera dans l'eau.  
-Peut être qu'il se couchera à côté d'elle et la rejoindra lui aussi l'autre rive pour devenir une marionnette.  
-Du ciel à la terre, la plus basse terre.  
+> SUITE: Le vigile est toujours là à guetter, il les voit arriver. Il tire sur l'un , qui fuit et tue l'autre d'un coup de pelle  
+> Il rejoindra la processoin avec sa bien aimée et y rajoutera le corps du vigile tué. Ou simplement il le laissera dans l'eau.  
+> Peut être qu'il se couchera à côté d'elle et la rejoindra lui aussi l'autre rive pour devenir une marionnette.  
+> Du ciel à la terre, la plus basse terre.  
 
