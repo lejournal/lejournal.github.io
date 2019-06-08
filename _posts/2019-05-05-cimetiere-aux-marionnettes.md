@@ -9,11 +9,11 @@ categories: littérature atelier
 
 ## Au dessous de l'eau
 
-Ce fut après six semaines de pluies sans discontinuer que les morts commencèrent à remonter.
+Après six semaines de pluies sans discontinuer, les morts commencèrent à remonter.
 
 Le premier fut découvert par Kalvin, le conducteur du petit train aquatique au Parc de Lost Island.
 
-Il commençait sa journée. Comme souvent, son bateau avait eu du mal à démarrer ce matin-là. Mais là, il suivait enfin le rail mécanique tracé dans l'eau.
+Il venait de commencer sa journée. Comme souvent, son bateau avait eu du mal à démarrer ce matin-là, mais il suivait enfin le rail mécanique tracé dans l'eau.
 
 Il engageait sa machine dans le canal, entre une île artificielle plantée de palmiers homogènes et de l'autre côté une forêt d'épicéas intercalés entre de petites marionnettes animées.
 
@@ -25,7 +25,7 @@ Il s'était penché par dessus bord et avait regardé ce qui se passait sous l'e
 Kalvin alors a prévenu la direction, qui lui a envoyé des plongeurs déguisés en grenouilles, tandis qu'il devait s'assurer que la musique continue de jouer.
 
 
-## Chapitre 2. A couvert
+## A couvert
 
 Voilà ce que mon chef m'avait raconté, alors que je revenais de notre ronde de surveillance dans le Parc.  
 
@@ -42,7 +42,8 @@ Le chef m'a alors appris qu'ils allaient organiser des rondes la nuit et j'étai
 
 > thématique des fantômes?
 
-## Chapitre 2.2
+## La parade
+
 J'ai laissé un message à Sylphide. Elle allait commencer à travailler à cette heure là. Acrobate, au Parc, ça ne se dérange pas. J'irais peut être la voir aussi tout à l'heure lors de ma tournée de nuit, pour lui expliquer.  
 
 Après la cantine, je suis retourné au bureau et on m'a désigné mon partenaire de nuit. Un petit de l'Est, Dušan il s'appelait, incapable de parler français, il essayait même pas, il faut lui accorder qu'il était honnête là-dessus, il gardait l'oeil collé aux résultats du tiercé sur son téléphone. Je le connaissais un peu. J'étais content d'être avec lui, sans raison, juste pour éviter d'avoir un peu de contact humain.  
@@ -55,7 +56,7 @@ Alors à nouveau elle s'est élancée, tout d'un souffle, elle s'est mise à dan
 
 Ce soir là je suis rentré vers trois heures du matin, les cheveux trempés. Les vêtements me collaient au corps, mais là j'avais une excuse, une mission, il fallait chasser les saligots qui salissaient notre Parc. Trop vite non plus, tant que je pouvais profiter de la double paie.  
 
-## Chapitre 2.3
+## Le lit de l'intranquilité
 
 Ça durait bien depuis 3 mois maintenant, ces patrouilles de nuit. Au début, j'ai bien aimé. Quand je revenais à l'appartement, Sylphide venait elle aussi de de rentrer après la parade de la Nuit. Elle se moquait de moi, elle me demandait si j'avais quelque chose à raconter, si j'avais été attaqué par des Ours dans la forêt enchantée.  
 -- Je crois que j'ai entendu un petit oiseau, qui essayait de chanter, je lui ai répondu un jour.  
@@ -83,7 +84,7 @@ Je suis allé lui préparer un thé aux herbes.
 
 Elle s'est levée et a cherché à me frapper avec la paume de samain, mais le lit trop mou s'est enfoncé sous son tout petit poids et son mug lui a glissé des mains et a volé dans la pièce. On s'est brûlé tous les deux avec le thé.  
   
-## Chapitre 3  
+## Rencontre
   
 Le soir, je commençais à sentir la fatigue du double travail. La journée à stationner auprès du stand de pâte à modeler. Et le soir les rondes sous la pluie, dans les bois, sous les manèges. On croisait les gens du ménage, toutes immigrées. Au début, ils nous avaient indiqué quelques endroits pour se cacher de la pluie et un peu se reposer, notamment au café près du Labyrinthe. Mais assez vite ils nous ont évité, ils se parlaient entre eux et nous ignoraient.  
   
@@ -97,9 +98,9 @@ J'ai vu son visage. C'était bien quelqu'un que je connaissais. Le mec qui tient
 
 J'ai alors senti un choc lourd sur ma nuque. Ma tête est partie en avant et j'ai perdu conscience.  
 
-## Chapitre 4
+## Mentir vrai
 
-Je me suis réveillé avec l'impression qu'on me tirait par les cheveux, à droite, à gauche. C'était Dušan.
+Je me suis réveillé avec l'impression qu'on me tirait par les cheveux, à droite, à gauche. C'était Dušan.  
 -- Tu vas comment, toi, dis?  
 -- Comme un sac de pommes de terres.
 
@@ -119,13 +120,14 @@ Les tournées de la soirée devenaient improbables humides silencieuses. On s'es
 Moi je voulais juste qu'elle trouve un avenir ici et je lui servirais de guide, d'aide. Elle avait la capacité de changer de poste, de devenir responsable d'une attraction, mais elle me rétorquait qu'ils ne prendraient jamais une sans papier pour travailler au sol. Je lui disais qu'on pouvait trouver une solution administrative ensemble, mais elle me trouvait trop ballot et puis elle se trouvait trop nerveuse pour accueillir les clients.
 
 
-## Chapitre 5  
+## La chute  
 
 -- Viens vite.  
-J'étais en train de lire le journal. C'est une des femmes qui s'occupe de rammasser les déchêts qui m'a prévenu. J'ai tout de suite pensé au pire, question de caractère. J'ai sauté sur mes pieds et j'ai couru vers l'allée, à droite, puis encore à droite, j'aurais pas du prendre la Grande Avenue à cette heure là elle était bondée, pour avancer c'était impossible.
+J'étais en train de lire le journal. Une des femmes qui s'occupe de rammasser les déchêts m'a prévenu. J'ai tout de suite pensé au pire. Question de caractère. J'ai sauté sur mes pieds. Sans trop réfléchir, je courrais déjà vers l'allée, à droite, puis encore à droite, le con j'aurais jamais dû prendre la Grande Avenue à cette heure là elle était bondée, pour avancer c'était impossible.
 
-J'ai commencé à bousculer les gens, les clients, à l'ancienne, coup d'épaule gauche, je m'infiltre entre deux, pivot sur une jambe, mouvement du bras pour dégager de deux allemands, tu parles d'une brasse coulée, après 10 mètres je faisais du sur place et la parade terminait de passer devant moi.  
-Je voyais les chars au loin s'éloigner, les gens ont commencé à refluer et moi dans le flot je m'agitais en vain, je reculais.
+Je me suis mis à bousculer les gens, les clients, à l'ancienne, coup d'épaule gauche, je m'infiltre entre deux, pivot sur une jambe, mouvement du bras pour dégager de deux allemands, tu parles d'une brasse coulée, après 10 mètres je faisais du sur place et la parade finissait de passer devant moi.  
+Je voyais les chars au loin s'éloigner.  
+Les gens ont commencé à refluer et moi dans le flot je m'agitais en vain, je reculais.
 
 J'ai pu atteindre l'infirmerie mais c'était trop tard. Sylphide s'était jetée dans l'air en voulant attraper un barreau sa main avait glissée, elle est partie de côté et elle est tombée en vrille sur le décor enchanté. Elle a attéri sur un lapin mécanique juste en dessous.  
 Pendant ce temps les animaux continuaient de s'agiter. Son char était coincé, les touristes au premier rang avaient crié mais le char a continué sa route jusqu'à son hangar final.
@@ -140,7 +142,8 @@ Dušan m'avait suivi à l'infirmerie, puis il était allé finir la ronde en vit
 C'est ce qu'il m'a raconté le soir chez moi quand il m'a raccompagné. On a bu de la bière en hommage à ma petite trapéziste. Quand on a fini la bouteille de whisky je me suis mis à chanter. Dušan m'a écouté avec un sourire immobile.
 
 
-## Chapitre 6  
+## Songeries  
+
 Je ne savais pas comment allait se passer les jours prochains. Toutes ces nuits de ronde, tous ces fantômes que je poursuivais. Je pensais aux nuits à marcher dans la nuit, ces nuits silencieuses à rêver.
 
 Je n'arrive pas à réfléchir aux jours prochains. Je pense à ces nuits à marcher dans la nuit, à poursuivre mes rêves et à chasser des fantômes. Lorsque je faisais des rondes au moins mon esprit s'évadait.
@@ -157,7 +160,8 @@ Je vais me doucher, mettre mon costume, serrer mon ceinturon, placer à droite m
 
 Sylphide partie, il me reste la réalité de ma vie et le souvenir d'un avenir.
 
-## Chapitre 6.2
+## Décision
+
 Au bureau, je suis convoqué par mon supérieur. C'est la seconde fois en moins de six mois qu'il me parle, je suis intrigué. J'espère qu'il n'a rien appris de notre intervention râtée il y a quelques semaines.
 Il s'asseoit derrière son bureau, ouvre un tiroir, le referme. Il a déjà devant lui une feuille et même un stylo.
 "Je tenais à te présenter au nom de tous les castmember du Parc toutes nos plus sincères condoléances."  
@@ -179,7 +183,9 @@ Mon chef s'arrête une seconde, se penche vers moi, joint les mains.
 
 Je veux m'en occuper. J'évite le regard de mon chef. Je sens qu'il est content de lui. Ça devait être le troisième point sur sa liste.
 
-## Chapitre 7
+
+## Sur le dos
+
 Je me suis retrouvé à arpenter les blocs administratifs derrière la Grande Église, à la recherche de la morgue. J'avais l'adresse que m'avait donné mon chef. Et un badge provisoire autour du cou pour circuler dans ce secteur. Ici les bâtiments sont droits, gris, tous de la même hauteur, deux étages. Ils sont cachés du public par le décor de la Grande Église.  
 J'ai essayé de demander plusieurs fois mon chemin. Les gens m'ont ignoré ils sont passés devant moi en faisant semblant de ne pas m'entendre ni me voir. Certains se sont arrêtés et ils m'ont indiqué avec un grand sourire un chemin compliqué et difficile à comprendre qui chaque fois me ramenait à l'entrée du complexe administratif.
 
@@ -204,7 +210,7 @@ Je n'ai m^eme pas eu le temps de vérifier le contenu du sac, il m'a aidé à le
 
 
 
-## Chapitre 8  
+## Labyrinthe
 
 > Il décide contacter les gens qui enterrent les morts, maintenant qu'il les connait. Dans une réserve avec plein de trucs toxiques - qu'il utilisera pour se suicider.  
 > Pas fini...
