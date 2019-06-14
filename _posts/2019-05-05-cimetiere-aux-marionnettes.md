@@ -117,7 +117,6 @@ Je ne lui ai pas dit que j'avais reconnu mon adversaire le Roi d'Egypte. Dušan 
 
 Le lendemain, on a fait notre ronde comme d'habitude. On a été prendre le café. J'ai tout de suite repéré le gars de la veille. Quand il m'a tendu une touillette, ses yeux se sont accrochés aux miens, j'ai su que je ne dirais rien et lui non plus.
 
-
 Les tournées de la soirée devenaient improbables humides silencieuses. On s'est mis à traîner de plus en plus avec les gens du ménage. Il pleuvait tellement, le soir, on restait longtemps sous le hauvent, Dušan les yeux sur son smartphone, il faisait son tiercé. Je comptais et recomptais mon argent. Dans un an je pourrai proposer à Sylphide de chercher un appartement ensemble, avec une chambre en plus. Elle parlait parfois de l'avenir ensemble, en riant. Elle aimait tellement faire l'artiste mais ça l'empéchait de penser à avoir des enfants. Elle parlait de l'Ukraine qu'elle avait quitté à 18 ans.  
 Moi je voulais juste qu'elle trouve un avenir ici et je lui servirais de guide, d'aide. Elle avait la capacité de changer de poste, de devenir responsable d'une attraction, mais elle me rétorquait qu'ils ne prendraient jamais une sans papier pour travailler au sol. Je lui disais qu'on pouvait trouver une solution administrative ensemble, mais elle me trouvait trop ballot et puis elle se trouvait trop nerveuse pour accueillir les clients.
 
@@ -125,7 +124,7 @@ Moi je voulais juste qu'elle trouve un avenir ici et je lui servirais de guide, 
 ## La chute  
 
 -- Viens vite.  
-J'étais en train de lire le journal. Une des femmes qui s'occupe de rammasser les déchêts m'a prévenu. J'ai tout de suite pensé au pire. Foutu instinct de merde. J'ai sauté sur mes pieds. Sans trop réfléchir, je courrais déjà vers l'allée, à droite, puis encore à droite, le con j'aurais jamais dû prendre la Grande Avenue à cette heure là elle était bondée, pour avancer c'était impossible.
+J'étais en train de lire le journal. Une des femmes qui s'occupe de rammasser les déchêts m'a prévenu. J'ai tout de suite pensé au pire. Foutu instinct de merde. J'ai sauté sur mes pieds. Sans trop réfléchir, je courrais déjà vers l'allée, à droite, puis encore à droite, le con jamais j'aurais dû prendre la Grande Avenue à cette heure là elle est bondée, pour avancer c'est impossible.
 
 Je me suis mis à bousculer les gens, les clients, à l'ancienne, coup d'épaule gauche, je m'infiltre entre deux, pivot sur une jambe, mouvement du bras pour dégager de deux allemands, tu parles d'une brasse coulée, après 10 mètres je faisais du sur place et la parade finissait de passer devant moi.  
 Je voyais les chars au loin s'éloigner.  
@@ -134,33 +133,34 @@ Les gens ont commencé à refluer et moi dans le flot je m'agitais en vain, je r
 J'ai pu atteindre l'infirmerie mais c'était trop tard. Sylphide s'était jetée dans l'air en voulant attraper un barreau sa main avait glissée, elle est partie de côté et elle est tombée en vrille sur le décor enchanté. Elle a attéri sur un lapin mécanique juste en dessous.  
 Pendant ce temps les animaux continuaient de s'agiter. Son char était coincé, les touristes au premier rang avaient crié mais le char a continué sa route jusqu'à son hangar final.
 
-
 J'étais la tête entre les genoux, j'attendais que quelqu'un vienne me chercher. N'importe qui. Je pensais que j'aurais droit à une annonce officielle, de ce que m'avait dit une infirmière.
 
-Mes vêtements était trempés, mes pieds gisaient dans une flaque d'eau. Mes cheveux n'arrivaient pas à sécher, j'avais le visage couvert de pluie. Ça m'arrangeait je ne voulais plus bouger, je voulais juste rester les yeux plantés dans le carrelage trempé, le nez qui coule et les doigts gelés.
+Mes vêtements était trempés, mes pieds gisaient dans une flaque d'eau. Mes cheveux n'arrivaient pas à sécher, j'avais le visage couvert de pluie. Ça m'arrangeait je ne voulais plus bouger, je voulais juste rester les yeux plantés dans le carrelage mouillé, le nez qui coule et les doigts gelés.
 
-Dušan m'avait suivi à l'infirmerie, puis il était allé finir la ronde en vitesse, il a même été badger pour moi. Il a pris un gros risque à ce moment là. Je ne le savais pas mais il y a des gens de la sécurité qui surveillent la pointeuse. Il aurait pu se faire virer et moi avec.
+Dušan m'avait suivi à l'infirmerie, puis il était allé finir la ronde en vitesse, il a même badgé pour moi. Il a pris un gros risque à ce moment là. Je ne le savais pas mais il y a des gens de la sécurité qui surveillent la pointeuse. Il aurait pu se faire virer et moi avec.
 
 C'est ce qu'il m'a raconté le soir chez moi quand il m'a raccompagné. On a bu de la bière en hommage à ma petite trapéziste. Quand on a fini la bouteille de whisky je me suis mis à chanter. Dušan m'a écouté avec un sourire immobile.
 
 
 ## Songeries  
 
-Je ne savais pas comment allait se passer les jours prochains. Toutes ces nuits de ronde, tous ces fantômes que je poursuivais. Je pensais aux nuits à marcher dans la nuit, ces nuits silencieuses à rêver.
-
-Je n'arrive pas à réfléchir aux jours prochains. Je pense à ces nuits à marcher dans la nuit, à poursuivre mes rêves et à chasser des fantômes. Lorsque je faisais des rondes au moins mon esprit s'évadait.
+Je n'arrive pas à réfléchir aux jours prochains. Mes pensées sont prises dans les images de ces nuits dans la forêt, à marcher, à échaffauder des plans et imaginer ce que pourrait être une sorte d'avenir, alors que, je ne le savais pas encore, quelques jours plus tard Sylphide allait mourir.  
  
-Alors je reste assis chez moi, sans dormir, devant mes yeux je vois passer et repasser les arbres de la forêt, les nuits dans les chemains, à marcher sans but sinon effrayer des fantômes qui transportent des morts vers un autre lieu.  
+Ces rêveries éveillées n'ont plus de sens, ne sont plus que du temps perdu, des espoirs qui sont arrivées à date de péremption. En même temps que le deuil de Sylphide, je fais aussi le deuil de nos projets ensemble, de nos petites constructions oniriques partagées qui nous accompagnaient, de nos discussions sur une vie à venir. Mon esprit ne veut plus quitter ces nuits et ces rêveries, il ne veut pas retourner à la réalité de sa médiocrité. Peut-être ces jours, avaient-ils été pour Sylphide et moi - elle, dans son corps suspendu au-dessus du sol, moi dans mes errances nocturnes dans la forêt -  les plus intenses de notre vie à tous les deux.
 
-je repense à ces moments où dans la forêt, je révais à une nouvelle vie et maintenant que ces rêves n'ont plus de sens, je suis ici, à repasser en esprit par tous les chemins du Parc d'attractoin, les raccourcis entre les bâtiments, les chemins qui mènent d'une attraction à une autre entre deux bouts de nature reconstituée. La réalité de la mort de Sylphide a frappé mon rêve et l'a laissé vide et vain. Je suis seul avec ce rêve périmé.  
-Et pourtant mon esprit ne peut plus quitter ces nuits, comme si ces rondes inutiles, à la recherche de fantômes, étaient devenues la seule réalité qui me reste encore, réalité devenue si vaine qu'elle est ramenée à rien d'autre qu'elle même. Les moments où je révais de construire un avenir pour nous, pendant que Sylphide volait dans les airs pour les regards et les appareils photos des visiteurs, peut-être avaient-ils été les plus intenses de notre vie à tous les deux.
+
+> réalité devenue si vaine qu'elle est ramenée à rien d'autre qu'elle même. 
+
+>> Lorsque je faisais des rondes au moins mon esprit s'évadait. Alors je reste assis chez moi, sans dormir.  
+>> , je suis ici, à repasser en esprit par tous les chemins du Parc d'attractoin, les raccourcis entre les bâtiments, les chemins qui mènent d'une attraction à une autre entre deux bouts de nature reconstituée. La réalité de la mort de Sylphide a frappé mon rêve et l'a laissé vide et vain. Je suis seul avec ce rêve périmé.  
 
 Le réveil sonne, il faut partir.  
-Faire ma ronde, marcher dans le Parc, explorer toute sa géographie sans jamais sortir de ses limites, et quand la nuit sera plus avancée je reviendrai ici et je m'assierai sans rêve, à laisser devant mes yeux ouverts le paysage défiler. Au fond de moi je sais tellement que Sylphide allait un jour tomber, que cela ne pouvait pas durer, c'est comme si sa mort n'était que la confirmation que notre vie a été une promenade perdue dans la nuit, un instant suspendu.
+Faire ma ronde, marcher dans le Parc, explorer toute sa géographie sans jamais sortir de ses limites et quand la nuit commencera à espérer le jour, je reviendrai ici et je m'assierai, à laisser devant mes yeux ouverts le paysage des regrets défiler. Au fond de moi je sais tellement que Sylphide allait un jour tomber, que cela ne pouvait pas durer, c'est comme si sa mort n'était que la confirmation que notre vie a été une promenade perdue dans la nuit, un instant suspendu.
 
 Je vais me doucher, mettre mon costume, serrer mon ceinturon, placer à droite mon pistolet en palstique, à gauche ma matraque électrique. Puis me peigner mettre ma casquette de policier et sortir, prendre le train, puis du train au bureau. J'irai prendre mes consignes aujourd'hui. Et ainsi garder la sécurité des gens et des biens, l'âme elle aussi à nue, dehors, frappée par les intempéries.
 
-Sylphide partie, il me reste la réalité de ma vie et le souvenir d'un avenir.
+Sylphide partie, il me reste la réalité de mon corps à trimbaler dans la géographie et le souvenir d'un avenir à jamais oublié.
+
 
 ## Décision
 
