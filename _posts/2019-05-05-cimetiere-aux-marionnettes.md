@@ -4,6 +4,13 @@ title:  "Le cimetière aux marionnettes"
 date:   2019-04-22 01:16:36 +0100
 categories: littérature atelier
 ---
+> 12/06/19
+> Notes: Donner un sujet à cette histoire: les gens s'attachent même si le monde est artificiel.
+> - Ils enterrent sur le Parc parce qu'ils sont attachés au lieu. Le Parc est contre parce que c'est un lieu de travail.
+> - Le vigile est un rebel c'est pour ça qu'il en a rien à foutre des processions. Il veut l'argent. Une fois Sylphide morte il s'en fout, veut leur faire un doigt.
+> - Sylphide comment lui donner plus de corps?
+> Hesites pas Gabriel à t'éclater
+
 
 # Le cimetière aux marionnettes
 
