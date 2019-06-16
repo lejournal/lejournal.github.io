@@ -18,7 +18,7 @@ categories: littérature atelier
 
 Après six semaines de pluies sans discontinuer, les morts commencèrent à remonter.
 
-Le premier fut découvert par Kalvin, le conducteur du petit train aquatique au Parc de Lost Island.
+Le premier fut découvert le conducteur du petit train aquatique au Parc de Lost Island.
 
 Il venait de débuter sa journée. Comme souvent, son bateau avait eu du mal à démarrer ce matin-là, mais après quelques râtées il suivait enfin le rail mécanique tracé dans l'eau. Il engageait sa machine dans le canal, entre une île artificielle plantée de palmiers homogènes et de l'autre côté une forêt d'épicéas intercalés entre de petites marionnettes animées.
 
@@ -27,7 +27,7 @@ Il était bien avancé dans ce passage, lorsque le bateau s'arrêta dans un caho
 Il avait lancé une annonce pour demander aux passagers de ne pas s'inquiéter.  
 Il s'était penché par dessus bord et avait regardé ce qui se passait sous l'eau. Entre la travée et le rail, il a vu un crâne d'enfant.  
 
-Kalvin a tout de suite prévenu la direction, qui lui a envoyé des plongeurs déguisés en grenouilles, tandis qu'il devait s'assurer que la musique continue de jouer.  
+Le conducteur a tout de suite prévenu la direction, qui lui a envoyé des plongeurs déguisés en grenouilles, tandis qu'il devait s'assurer que la musique continue de jouer.  
 
 
 ## À couvert
@@ -87,15 +87,14 @@ Elle s'est levée et a cherché à me frapper avec la paume de sa main, le lit t
 
 ## Rencontre
   
-Depuis quelques jours, je commençais à sentir la fatigue du double travail. La journée à stationner auprès du stand de pâte à modeler. Et le soir les rondes sous la pluie, dans les bois, sous les manèges. On croisait les gens qui nettoient le Parc, toutes immigrées, elle n'avaient pas toutes la chance d'être des acrobates. Au début, ils nous avaient indiqué quelques endroits pour se cacher de la pluie et un peu se reposer, notamment sous un hauvent près du Labyrinthe, où on servait un café pour les travailleurs de la nuit. Mais assez vite ils nous ont évité, comme si avec nos costumes de flics ils nous évitaient d'instinct.  
+Depuis quelques jours, je commençais à sentir la fatigue du double travail. La journée à stationner auprès du stand de pâte à modeler. Et le soir les rondes sous la pluie, dans les bois, sous les manèges. On croisait les gens qui nettoient le Parc, tous immigrées. Au début, ils nous avaient indiqué quelques endroits pour se cacher de la pluie et un peu se reposer, notamment sous un hauvent près du Labyrinthe, où on servait un café pour les travailleurs de la nuit. Mais en générail ils nos évitaient, comme si avec nos costumes de sheriff les faisaient fuir d'instinct.  
   
-On terminait notre ronde en silence, on était passé sous le Grand Huit, on marchait maintenant le long du Labyrinthe sans même pas arrêté pour notre café rituel. On marchait dans le noir, dans la forêt qui longe l'endroit où on avait trouvé les cadavres. J'étais devant et j'écartais les branches en silence. Arrivé en haut d'une petite montée, je me suis arrêté. Un bruissement venait d'un peu plus bas. Je pensais à un animal, puis la réflexion de Sylphide m'est revenu en tête, cela ne devait pas être cela.  
-J'ai fait signe à mon collègue de s'arrêter.  
-J'ai éteint la lampe torche et on s'est caché, dans le creux d'un décor d'arbre, sous un projecteur.  
-Le bruit se rapprochait. Un bruissement compacte, discret et lent. Puis de ma cachette, un peu plus bas, je vis passer devant moi quatre silhouettes, ils semblaient de grande taille. Ils portaient des masques de chevaux sur le visage. Is marchaient doucement, en prenant soin de ne pas faire de bruit. Ils ne parlaient pas. Ils avancaient en un rectangle coordonnée et tenaient à bout de bras une civière recouverte d'un linge immaculé. Sous ce linge, je me suis dit, certainement ils portaient un corps mort.  
+On terminait notre ronde en silence, on était passé sous le Grand Huit, on marchait maintenant le long du Labyrinthe sans même s'arrêter pour notre café rituel. On marchait dans le noir, dans la forêt qui longe l'endroit où on avait trouvé les cadavres. J'étais devant et j'écartais les branches en silence. Arrivé en haut d'une petite montée, je me suis arrêté. Un bruissement venait d'un peu plus bas. Je pensais à un animal, mais il n'y avait pas eu trace de vie animale ici depuis le premier jour de nos patrouilles.  
+J'ai fait signe à mon collègue de s'arrêter. J'ai éteint la lampe torche et on s'est caché, dans le creux d'un décor d'arbre, sous un projecteur.  
+Le bruit se rapprochait. Un bruissement compacte, discret et lent. De ma cachette, un peu plus bas, j'ai vu s'approcher devant moi quatre silhouettes, ils semblaient de grande taille. Ils portaient des masques de chevaux sur le visage. Is marchaient doucement, en prenant soin de ne faire le moins de bruit possible. Ils ne parlaient pas. Ils avancaient en un rectangle coordonnée et tenaient à bout de bras une civière recouverte d'un linge immaculé. Sous ce linge, je me suis dit, certainement ils portaient un mort.  
 
-Un autre bruit plus léger, disparate, et désordonné s'est élevé. Derrière eux, à quelques pas, plusieurs personnes marchaient derrière eux. Elle portaient toutes un masque des personnages du Parc. Un chien, un Ecureuil, un Voleur, Roi d'Egypte... Ils suivaient les chevaux, en rang de deux et au milieu d'eux, un personnage en blanc tenait par dessus sa tête ce qui ressemblait à un épouvantail, un autre personnage, mais de papier et chiffons, avec un masque de Pirate, exactement comme ceux que l'on vend dans les boutiques du Parc.  
-Cette procession avançait doucement vers la Rivière. Je n'ai pas eu le temps de terminer de les observer. Dans la cachette à côté de moi, Dušan est sorti projeté par un ressort, il s'est mis à crier et à foncer vers la procession. J'ai pris ma respiration et suis aussi sorti par solidarité, en criant et en beuglant. Tu parles d'un efficace. On n'avait pas fait dix pas que tout le monde se barrait en courant dans tous les sens. Dušan commençait à courser après les chevaux avec leur brancard. J'ai suivi un gars de la foule qui soivait, le premier, une sorte de prêtre égyptien qiu a soulevé sa robe et s'est mis à courir entre les fourrés dans tous les sens. Je le suivais, je commençais même à le rattraper quand il s'est pris les pieds dans un fil électique et il s'est cassé la gueule. Son masque a volé. Je me suis jeté sur son dos. J'ai saisi son épaule et l'ai cogné contre une buche et j'ai commencé à tordre son bras.  
+Un autre bruit plus léger, disparate, et désordonné s'est élevé. Plusieurs personnes marchaient derrière eux, à quelques pas. Elle portaient toutes un masque des personnages du Parc. Un chien, un Ecureuil, un Voleur, Roi d'Egypte... Ils suivaient les chevaux, en rang de deux et au milieu d'eux, un personnage en blanc tenait par dessus sa tête ce qui ressemblait à un épouvantail, fait de papier et chiffons, avec un bandeau sur l'oeil, exactement comme ceux que l'on vend dans les boutiques du Parc.  
+Cette procession avançait doucement vers la Rivière. Je n'ai pas eu le temps de terminer de les observer. Dušan est sorti comme projeté par un ressort de notre cachette, il s'est mis à crier et à foncer vers la procession. J'ai pris ma respiration et suis aussi sorti par solidarité professionnelle, en criant et en beuglant. Tu parles d'un efficace. On n'avait pas fait dix pas que tout le monde se barrait en courant dans tous les sens. Dušan commençait à courser après les chevaux avec leur civière. J'ai suivi le premier gars que je voyais à portée, une sorte de prêtre égyptien qui a soulevé sa robe et s'est mis à courir entre les fourrés. Je me suis mis à courir, je commençais à le rattraper quand il s'est pris les pieds dans un fil électique et il s'est cassé la gueule devant moi. Son masque a glissé. Je me suis jeté sur son dos. J'ai saisi son épaule et l'ai cogné contre une buche et j'ai commencé à tordre son bras.  
 J'ai vu son visage. C'était bien quelqu'un que je connaissais. Le mec qui tient le stand de cafés.  
 
 J'ai alors senti un choc lourd sur ma nuque. Ma tête est partie en avant et j'ai perdu conscience.  
@@ -107,47 +106,51 @@ Je me suis réveillé avec l'impression qu'on me tirait par les cheveux, à droi
 -- Comme un sac de pommes de terres.
 
 Il a souri. Il avait le sourire chaleureux quand il le voulait. "Les autres, partis, toi, boum, frappés, eux."  
-J'étais encore bien sonné, mais pas complètement con non plus.
+J'étais encore bien sonné, mais pas complètement con non plus.  
 
-Pas question que j'aille me faire ausculter le cerveau par une infirmière inquiète, c'était un coup à perdre trois mois de salaire. Ils pourraient même bien me virer. Je n'avais pas non plus envie de raconter cette nuit à la hiérarchie.
-" Ça va très bien aller, je peux me relever tout seul". C'était pas tout à fait vrai, Dušan m'a regardé patauger un peu par terre, mais fois debout je me suis avancé sous un arbre et ai secoué les branches au dessus de moi. Des gouttes chaudes sont tombées sur mon visage.  
+Pas question que j'aille me faire ausculter le cerveau par une infirmière inquiète, c'était un coup à perdre trois mois de salaire. Ils pourraient même bien me virer. Je n'avais pas non plus envie de raconter cette nuit à la hiérarchie.  
+" Ça va très bien aller, je peux me relever tout seul". C'était pas tout à fait vrai, Dušan m'a regardé patauger un peu par terre, mais fois debout je me suis avancé sous un arbre et ai secoué les branches au dessus de moi. Un pluie de gouttes sont tombées sur mon visage.  
 Je me suis essuyé et lui ai lancé: "Je ne sais pas ce qu'on va raconter au chef. Si on dit qu'on n'a pas pu les arrêter ils vont nous virer et ils vont vouloir doubler les rondes."  
 
-Je ne lui ai pas dit que j'avais reconnu mon adversaire le Roi d'Egypte. Dušan il comprenait tout bien.
+Je ne lui ai pas dit que j'avais reconnu mon adversaire le Roi d'Egypte. Dušan il comprenait tout bien. pas la peine de trop discuter quand on est d'accord.  
 
-Le lendemain, on a fait notre ronde comme d'habitude. On a été prendre le café. J'ai tout de suite repéré le gars de la veille. Quand il m'a tendu une touillette, ses yeux se sont accrochés aux miens, j'ai su que je ne dirais rien et lui non plus.
+Le lendemain, on a fait notre ronde comme d'habitude. j'ai insisté pour qu'on aille prendre le café. J'ai tout de suite repéré le gars de la veille. Quand il m'a tendu une touillette, ses yeux se sont accrochés aux miens, j'ai su que je ne dirais rien et lui non plus.
 
-Les tournées de la soirée devenaient improbables humides silencieuses. On s'est mis à traîner de plus en plus avec les gens du ménage. Il pleuvait tellement, le soir, on restait longtemps sous le hauvent, Dušan les yeux sur son smartphone, il faisait son tiercé. Je comptais et recomptais mon argent. Dans un an je pourrai proposer à Sylphide de chercher un appartement ensemble, avec une chambre en plus. Elle parlait parfois de l'avenir ensemble, en riant. Elle aimait tellement faire l'artiste mais ça l'empéchait de penser à avoir des enfants. Elle parlait de l'Ukraine qu'elle avait quitté à 18 ans.  
-Moi je voulais juste qu'elle trouve un avenir ici et je lui servirais de guide, d'aide. Elle avait la capacité de changer de poste, de devenir responsable d'une attraction, mais elle me rétorquait qu'ils ne prendraient jamais une sans papier pour travailler au sol. Je lui disais qu'on pouvait trouver une solution administrative ensemble, mais elle me trouvait trop ballot et puis elle se trouvait trop nerveuse pour accueillir les clients.
+Les tournées de la soirée devenaient monotones humides silencieuses. On s'est mis à traîner de plus en plus avec les gens du ménage. Il pleuvait tellement, le soir, on restait longtemps sous le hauvent, Dušan les yeux sur son smartphone, il faisait son tiercé. Je comptais et recomptais mon argent. Dans un an je pourrai proposer à Sylphide de chercher un appartement ensemble, avec une chambre en plus. Elle parlait parfois de l'avenir ensemble. Elle aimait tellement faire l'artiste je n'osais pas parler de faire un enfant, ça aurait mis un point final à sa carrière.  
+Je voulais juste qu'on se construise un petit avenir à tous les deux, ici et maintenant. 
 
 
 ## La chute  
 
 -- Viens vite.  
+
 J'étais en train de lire le journal. Une des femmes qui s'occupe de rammasser les déchêts m'a prévenu. J'ai tout de suite pensé au pire. Foutu instinct de merde. J'ai sauté sur mes pieds. Sans trop réfléchir, je courrais déjà vers l'allée, à droite, puis encore à droite, le con jamais j'aurais dû prendre la Grande Avenue à cette heure là elle est bondée, pour avancer c'est impossible.
 
 Je me suis mis à bousculer les gens, les clients, à l'ancienne, coup d'épaule gauche, je m'infiltre entre deux, pivot sur une jambe, mouvement du bras pour dégager de deux allemands, tu parles d'une brasse coulée, après 10 mètres je faisais du sur place et la parade finissait de passer devant moi.  
 Je voyais les chars au loin s'éloigner.  
-Les gens ont commencé à refluer et moi dans le flot je m'agitais en vain, je reculais.
+Les gens ont commencé à refluer et moi dans la masse je m'agitais en vain, je reculais.
 
-J'ai pu atteindre l'infirmerie mais c'était trop tard. Sylphide s'était jetée dans l'air en voulant attraper un barreau sa main avait glissée, elle est partie de côté et elle est tombée en vrille sur le décor enchanté. Elle a attéri sur un lapin mécanique juste en dessous.  
-Pendant ce temps les animaux continuaient de s'agiter. Son char était coincé, les touristes au premier rang avaient crié mais le char a continué sa route jusqu'à son hangar final.
+J'ai pu atteindre l'infirmerie un bout de temps après, c'était trop tard. Sylphide s'était jetée dans l'air en voulant attraper un barreau sa main avait glissée, elle est partie de côté et est tombée en vrille sur le décor enchanté. Elle a atterri sur un lapin mécanique juste en dessous.  
+Pendant ce temps les fleurs mécaniques et les papillons continuaient de danser autour d'elle. Son char était coincé, les touristes au premier rang avaient crié mais le char a continué sa route jusqu'à son hangar final.
 
-J'étais la tête entre les genoux, j'attendais que quelqu'un vienne me chercher. N'importe qui. Je pensais que j'aurais droit à une annonce officielle, de ce que m'avait dit une infirmière.
+J'étais la tête entre les genoux, j'attendais que quelqu'un vienne me chercher. N'importe qui. Je pensais que j'aurais droit à une annonce officielle.
 
 Mes vêtements était trempés, mes pieds gisaient dans une flaque d'eau. Mes cheveux n'arrivaient pas à sécher, j'avais le visage couvert de pluie. Ça m'arrangeait je ne voulais plus bouger, je voulais juste rester les yeux plantés dans le carrelage mouillé, le nez qui coule et les doigts gelés.
 
-Dušan m'avait suivi à l'infirmerie, puis il était allé finir la ronde en vitesse, il a même badgé pour moi. Il a pris un gros risque à ce moment là. Je ne le savais pas mais il y a des gens de la sécurité qui surveillent la pointeuse. Il aurait pu se faire virer et moi avec.
+Dušan m'avait retrouvé à l'infirmerie, puis il était allé reparti finir la ronde en vitesse, il a même badgé pour moi.
 
 C'est ce qu'il m'a raconté le soir chez moi quand il m'a raccompagné. On a bu de la bière en hommage à ma petite trapéziste. Quand on a fini la bouteille de whisky je me suis mis à chanter. Dušan m'a écouté avec un sourire immobile.
 
 
 ## Songeries  
 
-Je n'arrive pas à réfléchir aux jours prochains. Mes pensées sont prises dans les images de ces nuits dans la forêt, à marcher, à échaffauder des plans et imaginer ce que pourrait être une sorte d'avenir, alors que, je ne le savais pas encore, quelques jours plus tard Sylphide allait mourir.  
- 
-Ces rêveries éveillées n'ont plus de sens, ne sont plus que du temps perdu, des espoirs qui sont arrivées à date de péremption. En même temps que le deuil de Sylphide, je fais aussi le deuil de nos projets ensemble, de nos petites constructions oniriques partagées qui nous accompagnaient, de nos discussions sur une vie à venir. Mon esprit ne veut plus quitter ces nuits et ces rêveries, il ne veut pas retourner à la réalité de sa médiocrité. Peut-être ces jours, avaient-ils été pour Sylphide et moi - elle, dans son corps suspendu au-dessus du sol, moi dans mes errances nocturnes dans la forêt -  les plus intenses de notre vie à tous les deux.
+Je n'arrive pas à réfléchir aux jours prochains. C'est la fin de la nuit. Je suis assis, chez moi, dans un fauteuil assis sur quelques vêtements déjà froissés.  
 
+Mon esprit ne peux s'échapper des souvenirs. Ces nuits dans la forêt, à marcher, à échaffauder une sorte d'avenir, me hantent. 
+
+>> J'ai l'impression d'être encore dans la nuit à . Je cherchais dans ces forêts à échaffauder des plans et imaginer ce que pourrait être une sorte d'avenir, alors que, je ne le savais pas encore, quelques jours plus tard Sylphide allait mourir.  
+ 
+Ces rêveries éveillées tout d'un coup sont vidées de sens, ce n'est plus que du temps gâché, des espoirs qui sont arrivées à date de péremption. En même temps que le deuil de Sylphide, je fais aussi le deuil de nos projets ensemble, de nos petites constructions oniriques partagées qui nous accompagnaient, de nos discussions sur une vie à venir. Mon esprit ne veut plus quitter ces nuits et ces rêveries, il ne veut pas retourner à la réalité de sa médiocrité. Peut-être ces jours, avaient-ils été pour Sylphide et moi - elle, dans son corps suspendu au-dessus du sol, moi dans mes errances nocturnes dans la forêt -  les plus intenses de notre vie à tous les deux.
 
 > réalité devenue si vaine qu'elle est ramenée à rien d'autre qu'elle même. 
 
@@ -155,7 +158,7 @@ Ces rêveries éveillées n'ont plus de sens, ne sont plus que du temps perdu, d
 >> , je suis ici, à repasser en esprit par tous les chemins du Parc d'attractoin, les raccourcis entre les bâtiments, les chemins qui mènent d'une attraction à une autre entre deux bouts de nature reconstituée. La réalité de la mort de Sylphide a frappé mon rêve et l'a laissé vide et vain. Je suis seul avec ce rêve périmé.  
 
 Le réveil sonne, il faut partir.  
-Faire ma ronde, marcher dans le Parc, explorer toute sa géographie sans jamais sortir de ses limites et quand la nuit commencera à espérer le jour, je reviendrai ici et je m'assierai, à laisser devant mes yeux ouverts le paysage des regrets défiler. Au fond de moi je sais tellement que Sylphide allait un jour tomber, que cela ne pouvait pas durer, c'est comme si sa mort n'était que la confirmation que notre vie a été une promenade perdue dans la nuit, un instant suspendu.
+Faire ma garde, marcher dans le Parc, explorer toute sa géographie sans jamais sortir de ses limites et quand la nuit commencera à espérer le jour, je reviendrai ici et je m'assierai à nouveau, et laisserai devant mes yeux ouverts le paysage des regrets défiler. Au fond de moi je sais tellement que Sylphide allait un jour tomber, que cela ne pouvait pas durer, c'est comme si sa mort n'était que la confirmation que notre vie a été une promenade perdue dans la nuit, un instant suspendu.
 
 Je vais me doucher, mettre mon costume, serrer mon ceinturon, placer à droite mon pistolet en palstique, à gauche ma matraque électrique. Puis me peigner mettre ma casquette de policier et sortir, prendre le train, puis du train au bureau. J'irai prendre mes consignes aujourd'hui. Et ainsi garder la sécurité des gens et des biens, l'âme elle aussi à nue, dehors, frappée par les intempéries.
 
@@ -165,21 +168,25 @@ Sylphide partie, il me reste la réalité de mon corps à trimbaler dans la géo
 ## Décision
 
 Au bureau, je suis convoqué par mon supérieur. C'est la seconde fois en moins de six mois qu'il me parle, je suis intrigué. J'espère qu'il n'a rien appris de notre intervention râtée il y a quelques semaines.  
-Il s'asseoit derrière son bureau, ouvre un tiroir, le referme. Il a déjà devant lui une feuille et même un stylo.  
-"Je tenais à te présenter au nom de tous les castmember du Parc toutes nos plus sincères condoléances."  
-Je vois sur le papier à l'envers, quelques phrases griffonnées, dispatchés en trois points, sous une dizaine de lignes informatives sorties de l'imprimante.  
-La Direction savait donc pour ma relation avec Sylphide? Pourtant il n'y avait rien d'officiel entre elle et moi. Elle avait son propre appartement, dans une autre ville que la mienne, on n'était pas mariés, on ne travaillait pas ensemble et on ne fréquentait pas les mêmes fêtes lors des pots de service à la fin de l'année.  
+Il s'asseoit derrière son bureau, ouvre un tiroir, le referme. Il a déjà devant lui une feuille et même un stylo. Sur le papier à l'envers, quelques phrases griffonnées, dispatchés en trois points, sous une dizaine de lignes informatives sorties de l'imprimante.  
+"Je tenais à te présenter au nom des cast members du Parc, et de la Direction, toutes nos plus sincères condoléances."  
+La Direction savait donc pour ma relation avec Sylphide? Il n'y avait rien d'officiel entre elle et moi. Elle avait son propre appartement, dans une autre ville que la mienne, on n'était pas mariés, on ne travaillait pas ensemble et on ne fréquentait pas les mêmes fêtes lors des pots de service à la fin de l'année.  
 Je suis chaque jour étonné que lorsque l'on travaille à la Sécurité, on ne sait jamais rien des vraies informations.  
-"Irina était une artiste très appréciée ici", continue mon chef. S'il savait comme elle détestait qu'on l'appelle par son vrai nom.
-"Les gens de la Direction voudraient contacter sa famille. Mais voilà, on n'a pas d'adressse. Est-ce que tu sais toi si Irina était toujours en contact avec le pays?"  
+"Irina était une artiste très appréciée ici", continue mon chef. S'il savait comme elle détestait qu'on l'appelle par son vrai nom... Il poursuit.
+"Nous devons contacter sa famille. Mais voilà, on n'a pas d'adressse. Est-ce que tu sais toi si Irina était toujours en contact avec sa famille à l'étranger?"  
 Elle l'était mais je n'avais pas plus de détails qu'eux.  
--- C'est bien compliqué tout ça, on voudrait la renvoyer dans son pays.  
+-- C'est bien compliqué tout ça, on voudrait renvoyer son corps dans son pays.  
 -- Comment ça? Elle ne va pas être enterrée ici?  
--- Comme tu l'as dit toi même, on ne connait personne de sa famille, elle n'avais pas d'enfant, pas de mari. Tu vois quand quelqu'un meurt on regarde qui est la personne de contact et ça va vite en général, c'est réglé en quelques coups de fil. Avec les immigrés, surtout les célibataires, il y a un trou dans la raquette, pour eux avant ça passait par les ambassades mais tu vois ce que je veux dire, ils répondaient toujours en retard, et la vérité ils s'en occupaient pas. Mais pourtant il faut bien que quelqu'un les prenne en charge. Depuis quelques années maintenant c'est le Parc qui organise tout, le rapatriement, tout le bastringue. Les gens ont le droit de retrouver leur famille, leurs racines, l'ambition c'est que tout fonctionne bien. Et Dieu sait que c'est compliqué, et cher, souvent, mais on le fait.  
+-- Comme tu l'as dit toi même, on ne connait personne de sa famille, elle n'avais pas d'enfant, pas de mari. Tu vois quand quelqu'un meurt on regarde qui est la personne de contact et ça va vite en général, c'est réglé en quelques coups de fil. Avec les immigrés, surtout les célibataires, il y a un trou dans la raquette, pour eux avant ça passait par les ambassades mais tu vois ce que je veux dire, ils répondaient toujours en retard, et la vérité ils s'en occupent pas. Il faut bien que quelqu'un les prenne en charge. 
+Il recule dans son siège et soupire maladroitement.
+"Depuis quelques années tu sais le Parc organise tout, le rapatriement, tout le bastringue. Les gens ont le droit de retrouver leur famille, leur racine, l'ambition c'est que tout fonctionne bien. Et Dieu sait que c'est compliqué, et cher, souvent, mais on le fait.  
 -- Je préférerais m'en occuper, je lâche entre les dents.  
+-- On peut tout prendre en charge, tu sais, si jamais elle a encore un lien avec sa famille.  
+-- Non, merci, je voudrais m'en occuper.  
 
-Mon chef s'arrête une seconde, se penche vers moi, joint les mains.  
-" Après tout c'est une procédure possible aussi. Rien ne t'oblige. Tu sais la politique de la maison. Je faut que tu te sentes libre. On peut tout prendre en charge, si jamais elle a encore un lien avec sa famille bien sûr. mais si tu t'en occupes, saches que le Comité d'Entreprise va t'aider. On est là pour ça."  
+Mon chef comprend enfin, s'arrête une seconde, se penche vers moi, joint les mains.  
+
+-- Ah? D'accord, tu sais, rien ne t'oblige. Mais c'est possible, je pense, on doit pouvoir changer la procédure. Mais que tu te sentes libre. Tu connais la politique de la maison. Si tu t'en occupes, le Comité d'Entreprise va t'aider. On est là pour ça."  
 
 J'évite le regard de mon chef. Je sens qu'il est content de lui.  
 Ça devait être le dernier point sur sa liste.  
@@ -187,78 +194,83 @@ J'évite le regard de mon chef. Je sens qu'il est content de lui.
 ## Sur le dos
 
 Je me suis retrouvé à arpenter les blocs administratifs derrière la Grande Église, à la recherche de la morgue. J'avais l'adresse que m'avait donné mon chef. Et un badge provisoire autour du cou pour circuler dans ce secteur. Ici les bâtiments sont droits, gris, tous de la même hauteur, deux étages. Ils sont cachés du public par le décor de la Grande Église.  
-J'ai essayé de demander plusieurs fois mon chemin. Les gens m'ont ignoré ils sont passés devant moi en faisant semblant de ne pas m'entendre ni me voir. Certains se sont arrêtés et ils m'ont indiqué avec un grand sourire un chemin compliqué et difficile à comprendre qui chaque fois me ramenait à l'entrée du complexe administratif.  
+J'ai essayé de demander plusieurs fois mon chemin. Les gens sont passés devant moi en faisant semblant de ne pas m'entendre ni me voir. Certains se sont arrêtés et ils m'ont indiqué avec un grand sourire un chemin compliqué et difficile qui chaque fois m'a ramené à l'entrée du complexe administratif.  
 
-J'ai décidé de prendre les rues au hasard, je tournais de temps en temps à droite, de temps en temps à gauche, vers les rues de plus en plus sombres. Au détour d'un chemin en terre qui montait, entre deux bâtiments en béton, une impasse au sol boueux et lourd. Au mur, une pancarte écrit en jaune sur fond noir, c'était bien la morgue.  
+J'ai décidé de prendre les rues au hasard, je tournais de temps en temps à droite, de temps en temps à gauche, vers les rues de plus en plus sombres. Au détour d'un chemin en terre qui montait, entre deux bâtiments en béton, une impasse au sol bitumeux et bombé. Au mur, une pancarte écrit en jaune sur fond noir, c'était bien la morgue.  
 
-La porte en métal est lourde et traîne par terre quand on la pousse. Je me suis retrouvé dans une imeense salle blanche et vide avec des dizaines de personnes assises sur des chaises en plastique alignées le long de tous les murs. En me tournant, j'ai repéré ce qui resssemblait à un comptoir d'accueil et m'y suis dirigé. Derrière le comptoir, l'employé était très occupé à ranger des papiers en paquets. Après cinq minutes d'agitation, il a levé la tête et soupiré.  
--- Alors, c'est pour qui?  
+La porte en métal est lourde et traîne par terre quand on la pousse. Je me suis retrouvé dans une immense salle blanche et vide avec un dizaine de personnes assises sur des chaises en plastique alignées le long de tous les murs. En me tournant, j'ai repéré ce qui resssemblait à un comptoir d'accueil et m'y suis dirigé. Derrière le comptoir, l'employé était très occupé à ranger des papiers en paquets. Après cinq minutes d'agitation, il a levé la tête et soupiré.  
+-- C'est pour qui?  
 Il criait presque.  
 J'ai montré le papier que m'avait préparé le chef. L'employé a pris le papier en le froissant et me l'a rendu en agrafant un ticket avec un numéro.  
-J'ai regardé le papier et l'employé tour à tour. Il avait déjà décroché le téléphone. Il s'est mis debout et m'a montré du coude les chaises derrière moi. Il a collé la main sur le combiné. " On vous appelera".
+J'ai regardé le papier et l'employé tour à tour. Il avait déjà décroché le téléphone. Il s'est mis debout et m'a montré du coude les chaises derrière moi. Il a collé la main sur le combiné. " On vous appelera".  
 
 J'ai serré le papier et me suis retourné. J'ai découvert quelques places libres et isolées près d'un coin.  
-On m'a très vite appelé. Les gens sur les chaises continuaient leurs occupations, sans faire attention les uns aux autres.  
-Dans une pièce étroite qui sent le moisi, un petit bureau en bois collé contre le mur, avec une loupe sur un bras articulé et beaucoup de papiers en désordre. Un homme en blouse avec des lunettes rondes m'a surpris en surgissant à ma droite. Il m'a pris le papier des mains. Il l'a lu et m'a jeté un regard : Mais vous devez le signer ce papier, c'est important. On s'est dirigé tous les deux vers le bureau. On n'a pas pu s'asseoir, il n'y avait pas de fauteuil ni chaise. L'homme a poussé un paquet de documents de la manche et a posé grossièrement le papier sur le petit espace libre qu'il venait de créer.  
-"Allez y signez, en bas à droite. Vous savez, c'est pour vous, tout ça." J'ai signé le papier sans rien relire.  
+On m'a très vite appelé. Lorsque je me suis levé et ai quitté la salle, les gens sur les chaises continuaient leurs occupations, sans faire attention les uns aux autres.  
+Dans une pièce étroite qui sent le moisi, un petit bureau en bois collé contre le mur, avec une loupe sur un bras articulé et beaucoup de papiers en désordre. Un homme en blouse avec des lunettes rondes m'a surpris en surgissant à ma droite. Il a pris le papier de mes mains. Il l'a lu et m'a jeté un regard : Mais vous devez le signer ce papier, c'est important. On s'est dirigé tous les deux vers le bureau. On ne pouvait pas s'asseoir, il n'y avait pas de fauteuil ni chaise. L'homme a poussé un paquet de documents de la manche et a posé grossièrement le papier sur le petit espace libre qu'il venait de créer.  
+"Allez-y, en bas à droite. Vous savez, c'est pour vous, tout ça." J'ai signé le papier sans rien relire.  
 
 Il a remonté les lunettes sur son nez et m'a dévisagé. Vous allez faire quoi maintenant?  
 Je lui ai répondu que je ne savais pas.  
--- Vous allez contacter la famille? Je sais d'expérience, quand on a un décès parmi ses proches on est pas soi-même, je vous donne les conseils j'espère que cela vous aidera. Vu le nom de la défunte, elle ne doit pas être d'ici, il faudra sûrement un certain temps pour que la famille puisse venir, cela vous laisse quelques jours pour vous organiser. Ici ne vous inquiétez pas les chambres froides gardent parfaitement les corps, jusqu'à quinze jours, on peut faire une exception si vous avez beaucoup de mal à contacter tout le monde, on est même allé jusqu'à 16 ou 17 jours, cela dépend tellement des jours des libertés de chacun, on est maître de rien du tout c'est ce que m'a dit une personne de passage ici l'autre jour... D'ailleurs j'y pense vous pourrez avoir des chambres d'hôtel pas trop cher. Vous savez, même si, à cette saison, toutes les chambres sont prises, il reste toujours un quota pour les invités des cast members.  
+-- Vous allez contacter la famille? Je sais d'expérience, quand on a un décès parmi ses proches on est pas soi-même, je vous donne les conseils j'espère que cela vous aidera. Vu le nom de la défunte, elle ne doit pas être d'ici, mais je m'occupe de ce qui n'es pas mes affaires, là. Il faudra sûrement un certain temps pour que la famille puisse venir, cela vous laisse quelques jours pour vous organiser. Ici les chambres froides gardent parfaitement les corps, jusqu'à quinze jours, on peut faire une exception si vous avez beaucoup de mal à contacter tout le monde, on est même allé jusqu'à trois semaines, cela dépend tellement des jours des libertés de chacun, on est maître de rien du tout, on le sait tous les deux, comme me l'a dit une personne de passage ici l'autre jour... D'ailleurs j'y pense vous pourrez avoir des chambres d'hôtel pas trop cher. Vous savez, même si, à cette saison, toutes les chambres sont prises, il reste toujours un quota pour les invités des cast members.  
 -- Je vais penser à tout ça, merci.  
-J'étais troublé, c'était la première personne essayait de m'aider. J'avais juste envie qu'il se taise avec ses fariboles écrites à l'avance.  
+J'étais troublé, c'était la première personne essayait de m'aider. J'avais juste envie qu'il se taise, qu'il me laisse un peu tranquille.  
 -- Je ne connais personne de sa famille, pour tout vous dire.  
--- Vous savez que vous devez aussi contacter par le CE? Ils vous feront un prix sur les frais de funérailles, selon votre ancienneté, ils peuvent même vous proposer un prêt si cela va vous faciliter la vie. Tout se passe par internet, l'url est sur le papier, vous voyez, sur le dos.  
+-- Vous savez que vous devez aussi contacter le CE? Ils vous feront un prix sur les frais de funérailles, selon votre ancienneté, ils peuvent même vous proposer un prêt si cela va vous faciliter la vie. Tout se passe par internet, l'url est sur le papier, vous voyez, sur le dos.  
 Mes dents grinçaient, je ne pouvais plus prononcer un mot.  
--- Je vous assure que les gens qui choisissent les enterrements du CE ne l'ont pas regretté, tout étaient très bien organisé. La prise en charge est excellente.  J'oublie de vous dire, surtout, le plus important, ils vous laissent le choix. Ses cendres seront dispercées sur l'attraction que vous souhaitez. C'est à envisager de votre côté, assez vite si possible, c'est important, pour l'organisation de la cérémonie, parfois ça demande de s'y prendre des jours à l'avance.  
--- Mais je ne comprends pas, Sylphide ne sera pas enterrée?  
--- Il n'y a pas de cimetière dans le Parc. Mais il y aura une petite cérémonie au Crématorium, pas très loin d'ici, vous êtes peut-être déjà passé devant sans savoir qu'il existe.  
-J'avais envie de prendre le petit bonhomme par le col et de le pousser contre le mur. " Vous essayez juste de me broyer".  
-Cette scène s'éait simplement passée dans ma tête. En réalité j'ai juste murmuré:
+-- Je vous assure que les gens qui choisissent les enterrements du CE ne l'ont pas regretté, tout étaient très bien organisé. La prise en charge est excellente.  
+La cérémonie aura lieu à l'extérieur du petit Crématorium. Pas très loin d'ici, vous êtes peut-être déjà passé devant sans savoir qu'il existe. Vous pourrez vous recueillir devant l'Urne avant que les cendres ne soient répandues.
+-- Je ne comprends pas.  
+-- C'est ce que m'ont raconté des gens qui étaient dans le même cas que vous. J'oublie de vous dire, surtout, le plus important, il faut que vous y réfléchissiez. Ses cendres seront dispercées sur l'attraction que vous souhaitez. C'est à vous de choisir, à envisager de votre côté, assez vite si possible, question pour l'organisation de la cérémonie de plannifier la chose, parfois ça demande de s'y prendre des jours à l'avance.  
 -- Je préférerais m'en occuper.  
--- Vous ne voulez pas passer par le Comité d'Entreprise?
+-- De répandre les cendres? L'urne doit restée ssous la responsabilité du Crématorium, pour des raisons d'hygiène je suppose.
 Je hoche la tête les yeux fixés sur la pile de papiers sur la table.  
--- Si vous refusez la solution du Comité d'Entreprise, vous allez perdre l'avantage de la morgue. On ne peut pas garder indéfiniment les garder, ils ne sont pas de notre responsabilité maintenant. C'est à vous de vous débrouiller.  
-Bon. Vous avez signé, mais vous ne savez pas quelle difficultés vous allez rencontrer. Laissez moi vous montrer  
+-- Je vais m'occuper de l'enterrement.
+
+L'home se gratte la tête et recule d'un pas. Il semble chercher un point de réglement dans sa mémoire.
+-- Dans ce cas, vous allez perdre l'avantage de la morgue. On ne peut pas garder indéfiniment garder les gens, ils ne sont pas de notre responsabilité. Ce sera à vous de vous débrouiller. 
+Il continue: Vous ne savez pas quelle difficultés vous allez rencontrer. Laissez moi vous montrer  
+
+"Attendez-moi ici" et il a disparu.  
+
 Je ne savais pas du tout ce que j'avais signé.  
+Je me suis retrouvé seul. Je me sentais humilié, jeté en pâture. L'homme est réapparu dans un tintamarre métalique. Il poussait un brancard en acier. Sur le dessus, un grand tissu blanc fermé comme un sac, sa forme rappelait celle d'un corps humain.  
+"Si j'étais vous, je réfléchirais. Vous devriez laisser le Comité d'Entreprise s'en occuper."  
+Devant mon silence il a haussé les épaules et a continué: "Mais... je ne suis pas vous."  
 
-Il m'a alors lancé: Attendez moi ici et il a disparu. Je me suis retrouvé seul. Je me sentais humilié, jeté en pâture. L'homme est réapparu dans un tintamarre métalique. Il poussait un bracard en acier. Sur le dessus, un grand tissu blanc fermé comme un sac, sa forme rappelait celle d'un corps humain.  
-Il a essayé une dernière fois, d'une voix faible, de me convaincre.  
-"Si j'étais vous, je réfléchirais. Vous devriez laisser le Comité d'Entreprise s'en occuper." Devant mon silence il a haussé les épaules et a continué: "Mais... je ne suis pas vous."  
+Il a avancé d'un pas vers le brancard a posé les mains sur ses rebords en acier. Il a jeté un regard sur l'horloge au mur, puis il les a fermé ses yeux et après un silence, il s'est prononcé.  
+" On va faire vite. À cette heure-ci je ne peux pas appeler mon responsable, il fait la sieste. En même temps, je n'ai pas de droit de refuser votre demande. On va faire simple."  
+" La porte que vous voyez à droite débouche directement dehors, je vous aide, j'ai l'habitude."  
 
-Il a fait un pas vers le brancard a posé les mains sur ses rebords en acier. Ses yeux se sont alors fixé sur l'horloge au mur.  
-" On va faire vite. À cette heure-ci je ne peux pas appeler de responsable. Et je n'ai pas de droit de refuser votre demande. Ça va être simple."
-"La porte que vous voyez à droite débouche directement dehors, dépéchez-vous, je vous aide."  
-
-Je n'ai même pas eu le temps de vérifier le contenu du sac mortuaire, l'homme m'a aidé à mettre le sac mortuaire sur le dos et je me suis glissé dehors, par l'ouverture de la porte, qui s'est tout de suite refermée sur moi dans un bruit métallique.  
+Je n'ai pas eu le temps de vérifier le contenu du sac mortuaire, l'homme l'a pris à bras le corps et l'a déposé sur mon dos, me forçant à me pencher en avant. Il m'a mis une main sur l'épaule et m'a guidé vers la sortie. Je me suis glissé dehors, par l'ouverture de la porte, qui s'est tout de suite refermée sur moi dans un bruit métallique, sans que j'ai l'occasion de me retourner.  
 
 Je me suis retrouvé sur le parvis de la Grande Église, au milieu de la foule qui se déplaçait d'une attraction d'autre.  
 
 ## Labyrinthe
 
-J'ai traversé le parvis et avancé vers le Labyrinthe d'Alice, vers la droite. Je me dis qu'il peut être un bon endroit pour se cacher, avec toutes ces pluies, il est la plupart du temps fermé au public.  
+J'ai traversé le parvis et ai avancé vers le Grand Labyrinthe. Il n'étais pas loin et je voulais me mettre à couvert. Je me suis dit ça doit être un bon endroit pour se cacher. Avec ces pluies, l'attraction est fermée au public.  
 
-La pluie descend le long des chemins du labyrinthe d'Alice au Pays des Merveilles. La pluie suit les voies ouvertes, court le long des murets, arrache les broussailles. Elle tourne sans prévenir, traverse les cloisons d'arbustes, les haies et les bosquets. Ici la nature reprend ses droits.  
+La pluie descend le long des chemins du labyrinthe. La pluie suit les voies ouvertes, court le long des murets, arrache les broussailles. Elle tourne sans prévenir, traverse les cloisons d'arbustes, les haies et les bosquets. Ici la nature reprend ses droits.  
 
-J'ai parcouru le labyrinthe dans les eaux jusqu'à un lieu que je savais plus élevé. 
+J'ai parcouru le labyrinthe dans les eaux. Le sac mortuaire sur le dos n'était pas lourd et il me protégeait mais pendant que je parcourais le labyrinthe je pensais qu'il faudrait que je m'en sépare, pourtant. Je suis arrivé jusqu'à un lieu que je savais plus élevé et protégé des courants d'eaux. Je me suis assis au pied d'un arbre et j'ai appelé Dušan.  
+
+Il est venu avec une bouteille de whisky. À ses côtés, l'accompagnait le vendeur de café sous le hauvent. C'était bien ce que je pensais, il était bien l'organisateur des enterrements aux bord de l'eau. Depuis que l'on les avait surpris, ils avaient pu reprendre leurs activités. Ils enterraient surtout des immigrés ou des clandestins. Souvent ils ne se connaissaient pas mais ils souhaitaient honorer les morts, d'où qu'ils viennent. Ils avaient inventé une sorte de commémoration de bric et de broc, à base de rites venus de tous les pays. L'image des chevaux qui accompagnaient les morts venaient du Mozambique, la marionnette était issue du folklore colombien, le voile blanc venaient de Syrie.  
+
+On a discuté de l'organisation de l'enterrement de Sylphide. Je monterais la garde jusqu'au dernier moment. En tant que vigile je serais celui qui pourrait le mieux nous faire échapper des vigiles. Le prêtre est reparti pour organiser la procession de son côté et je suis resté avec Dušan à boire et échanger quelques mots définitifs.  
 
 
->> Les enterrements ont lieu la veile des nuits sans lune, une idée amenée il y a quelques années par un employé au fort accent sud-américain. C'était une coutume de son pays d'origine. Cela laissait le temps à l'âme de s'échapper discrètement la nuit suivante.  
->> La prochaine nuit, je ne travaillais pas et j'ai proposé de monter la garde pour les prévenir du danger.  
-  
-  
 ## Nuit sans lune  
   
 > TODO: changer, la procession emmène le mort et le fait passer le fleuve, où l'attende l'ours le clown et les 3 écureuils.  
   
-Il est deux heures du matin. Je suis monté dans une baraque de cow-boys dans les arbres, dans l'attraction la plus proche du petit fleuve. J'ai allumé mon portable, me suis connecté au groupe qui permet de communiquer entre nous. J'ai mis mes oreillettes et ai muté le micro.  
+Il est deux heures du matin. Je me suis installé dans une baraque de cowboys perchée dans les arbres, près de l'attraction la plus proche du petit fleuve. J'ai allumé mon portable, me suis connecté au groupe WhatsApp qui permet de communiquer entre nous. J'ai mis mes oreillettes et ai muté le micro.  
   
-Les employés commencent à se retrouvent dans la palmeraie le long du fleuve. Ils viennent par petits groupes, certains à pied, par les îles, certains sur de petites barques de secours qu'ils ont subtilisé pour l'occasion. Quelques figurants ont gardé leurs costumes, les autres portent des masques de souris, de chiens ou de chats qui leur cachent le visage. Ils viennent en silence et s'alignent le long de la rive, sous les chênes épais.  
+Quelques employés se retrouvent dans la forêt le long du fleuve. Ils viennent par petits groupes, certains à pied, par les îles, certains sur de petites barques de secours qu'ils ont subtilisé pour l'occasion. Quelques figurants ont gardé leurs costumes, les autres portent des masques de souris, de chiens ou de chats qui leur cachent le visage. Ils viennent en silence et s'alignent le long de la rive, sous les chênes épais.  
 On entend au loin le dernier train qui s'arrête dans la gare principale. Sa sonnerie retentit. Il repart.	  
 Je scrute l'étendue du parc. Au loin, sous le Grand Huit je vois des lampes torches qui balaient le sol. Je prends mon téléphone.  
 — Vous pouvez y aller.  
 A quelques mouvements dans l'assistance je comprends que l'on m'entend. Chacun a bien mis ses écouteurs derrière son masque. On s'entend tous ensemble et on communique dans le silence.  
-  
+
+
 Il ne faut pas attendre bien longtemps avant que, sur l'autre côté de la rive, plusieurs figurants habillés en écureuils, apparaissent d'entre les palmiers qui bruissent de leurs crissements plastiques et épais et descendent se placer autour des marionnetttes au bord de l'eau. Dans mes écouteurs, j'entends une musique basse, rythmée, mélange de timbales, de tambourin et de cordes pincées de banjo et d'un violon qui étire les notes au loin.  
   
 Quelques minutes plus tard, un grand personnage dans un costume d'ours se fraie un chemin entre les épines. Il porte un grand sac en toile sur le dos.  
