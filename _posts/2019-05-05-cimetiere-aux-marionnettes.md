@@ -253,39 +253,43 @@ La pluie descend le long des chemins du labyrinthe. La pluie suit les voies ouve
 
 J'ai parcouru le labyrinthe dans les eaux. Le sac mortuaire sur le dos n'était pas lourd et il me protégeait mais pendant que je parcourais le labyrinthe je pensais qu'il faudrait que je m'en sépare, pourtant. Je suis arrivé jusqu'à un lieu que je savais plus élevé et protégé des courants d'eaux. Je me suis assis au pied d'un arbre et j'ai appelé Dušan.  
 
-Il est venu avec une bouteille de whisky. À ses côtés, l'accompagnait le vendeur de café sous le hauvent. Il était bien l'organisateur des enterrements près du fleuve. Ils avaient repris leurs activités, quand ils avaient compris que nos rondes ne servaient pas à grand chose. Ils enterraient surtout des immigrés ou des clandestins, des travailleurs qui avaient fait leur vie dans le Parc mais n'avaient aucune autre vie ailleurs et souhaitaient simplement être entérrés là où ils avaoent vécu. Les gens qui participaient à ces processions ne se connaissaient pas, ils souhaitaient honorer les morts, d'où qu'ils viennent. Ils avaient inventé une sorte de rituel de bric et de broc, à base de rites venus de tous les pays. L'image des chevaux qui accompagnaient les morts venaient du Mozambique, la marionnette était issue du folklore colombien, le voile blanc venaient de Syrie.  
+Il est venu avec une bouteille de whisky. À ses côtés, l'accompagnait le vendeur de café sous le hauvent. Il était le créateur des enterrements près du fleuve. Depuis qu'ils avaient compris que nos rondes ne servaient pas à grand chose, ils avaient repris leurs activités, lorsque Dušan et moi étions de garde. Ils enterraient surtout des immigrés ou des clandestins, des travailleurs qui avaient fait leur vie dans le Parc mais n'avaient aucune autre vie ailleurs et souhaitaient simplement être enterrés là où ils avaient vécu. Les gens qui participaient à ces processions ne se connaissaient pas, ils souhaitaient honorer les morts, d'où qu'ils viennent. Ils avaient inventé une sorte de rituel de bric et de broc, à base de rites venus de tous les pays. L'image des chevaux qui accompagnaient les morts venaient du Mozambique, la marionnette était issue du folklore colombien, le voile blanc venaient de Syrie.  
 
-On a préparé l'enterrement de Sylphide. Je monterai la garde jusqu'au dernier moment. En tant que vigile, je serais celui qui pourrait le mieux nous faire échapper des vigiles.  
-Le prêtre est reparti pour organiser la procession de son côté et je suis resté avec Dušan à boire et échanger quelques mots rares et définitifs.  
+On a organisé l'enterrement de Sylphide pour le lendemain, jour où nous devions faire une ronde Dušan et moi. Je monterai la garde jusqu'au dernier moment, pour prévenir d'éventuels soucis.  
+Le prêtre est reparti pour préparer la procession de son côté et je suis resté avec Dušan à boire et échanger quelques mots rares et définitifs.  
 
 
 ## Nuit sans lune  
   
-Il est deux heures du matin. Je me suis installé dans une baraque de cowboys perchée dans les arbres, près de l'attraction la plus proche du petit fleuve. J'ai allumé mon portable, me suis connecté au groupe WhatsApp qui permet de communiquer entre nous. J'ai mis une oreillette et ai muté le micro. Puis j'ai mis sur mon visage un masque du Barde Assuranstourix sur le visage. Je ne sais pas comment j'ai récupéré ce masque de la concurrence, mais il me va bien et couvre bien mon visage.  
+Il est deux heures du matin. Je me suis installé dans une baraque de cowboys perchée dans les arbres, près de l'attraction la plus proche du petit fleuve. J'ai allumé mon portable, me suis connecté au groupe WhatsApp qui permet de communiquer entre nous. J'ai mis une oreillette et ai muté le micro. Puis j'ai mis sur mon visage un masque de Chien méchant sur le visage, qui me semblait tout à fait ironique, comme j'alais monter la garde.  
   
-Quelques employés se retrouvent dans la forêt le long du fleuve. Ils arrivent par petits groupes, certains à pied, par les îles, certains sur de petites barques de secours qu'ils ont subtilisé pour l'occasion. Les anciens collègues de Sylphide sur la Parade ont gardé leurs costumes, les autres portent déjà des masques eux aussi, de souris, de chiens ou de chats qui leur cachent le visage. Ils viennent en silence et se cachent à l'orée de la forêt derrière les premiers chênes épais.  
+Quelques employés se retrouvent à l'orée de la forêt le long du fleuve. Ils arrivent par petits groupes, certains à pied, par les îles, certains sur de petites barques de secours qu'ils ont subtilisé pour l'occasion. Les anciens collègues de Sylphide ont gardé leurs costumes de la Parade, les autres ont déjà revêtu des masques eux aussi, de souris, de chiens ou de chats qui leur cachent le visage. On dirait que l'on va sauver tous les animaux de la Création, cette nuit. Ils glissent dans la forêt en silence et se cachent derrière les premiers bosquets de chênes épais.  
+
 On entend au loin le dernier train qui s'arrête dans la gare principale. Sa sonnerie retentit. Il repart.  
-Je scrute l'étendue du parc. Au loin, sous le Grand Huit je vois des lampes torches qui balaient le sol. Je prends mon téléphone.  
+Je scrute l'étendue du parc. Sous le Grand Huit je vois des lampes torches qui balaient le sol. C'est une des équipes de nuit qui patrouille à l'utre bout du Parc. Je prends mon téléphone.  
 — La voie est libre.  
-A quelques mouvements dans les arbres je comprends que l'on m'entend. Chacun a bien mis ses écouteurs derrière son masque. On s'entend tous ensemble et on communique dans le silence.  
+A quelques mouvements dans les arbres je comprends que l'on m'entend. Chacun a mis ses oreillettes derrière son masque. On s'entend tous ensemble et on communique dans le silence.  
 
-Il ne faut pas attendre bien longtemps avant que n'apparaisse les quatre chevaux entourant le corps de Sylphide, recouvert d'un drap blanc. Le convoi commence son chemin entre des pierres et des arbres hauts, suivi par le cortège hétéroclyte de gens masqués et de quelques prêtres habillés en blanc comme des égyptiens de bande dessinée.  
+Il ne faut pas attendre bien longtemps avant que n'apparaisse les quatre chevaux entourant le corps de Sylphide, recouvert d'un drap blanc. 
+Un grand personnage dans un costume d'ours se place devant le cortège et se met en marche. Il commence à ouvrir le chemin à coup de griffes entre les ronces en plastique et les plantes folles.  
+Le convoi commence son chemin entre des pierres et des arbres hauts, suivi par le cortège hétéroclyte de gens masqués entourés de quelques prêtres habillés comme des égyptiens de bande dessinée. Le cortège est mené par un clown multicolore, aux cheveux verts et violets hirsutes en pics autour d'un masque au sourire figé. Le clown porte un grand pieu sur lequel est figé une sorte d'épouvantail en chiffons et en paille.  
 
->>sur l'autre côté de la rive, plusieurs figurants habillés en écureuils, apparaissent d'entre les palmiers qui bruissent de leurs crissements plastiques et épais et descendent se placer autour des marionnetttes au bord de l'eau. 
+Par les écouteurs, j'entends s'élever une musique basse, rythmée, un mélange de timbales, de tambourin et d'un violon qui étire les notes au loin.  
 
-Dans mes écouteurs, j'entends s'élever une musique basse, rythmée, un mélange de timbales, de tambourin et d'un violon qui étire les notes au loin.  
+Tout ce petit cortège se dirige vers le fleuve, lentement.  
+La musique s'amplifie au fur et à mesure qu'ils avancent vers le Fleuve.  
+Arrivés à la rive, La procession se fige. Le clown s'est arrêté soudain et a levé le bras. J'entends maintenant sa voix par le téléphone, il commence à spalmodier en rythme sur les timbales. Il produit un mélange d'anglais, de mots que je ne comprends pas et de claquements de langue, qui me paraissent comme des borborygmes, mais sa voix est forte et il semble comme chanter une prière insensée au rythme des timbales.  
   
-Un grand personnage dans un costume d'ours se fraie la voie devant le cortège et ouvre le chemin à coup de griffes en plastique entre les ronces en plastique et les plantes folles.  
-Il est suivi d'un clown multicolore, aux cheveux verts et violets hirsute en pics autour d'un masque au sourire figé. Le clown porte un grand pieu sur lequel est figé une sorte d'épouvantail en chiffons et en paille.  
-Tout ce petit cortège se dirige vers le fleuve, lentement. La musique s'amplifie au fur et à mesure qu'ils avancent vers le Fleuve.  
-Arrivés à la rive, La procession se fige. Le clown s'est arrêté soudain et a levé le bras. Dans mon oreillette, je l'entends maintenant, il commence à spalmodier en rythme sur les timbales. Il produit un mélange d'anglais, de mots que je ne comprends pas et de claquements de langue, qui me paraissent comme des borborygmes, mais sa voix est forte et il semble comme chanter une prière insensée au rythme des timbales.  
+Pendant ce temps, de l'autre côté de la rive, une silhouette apparaît. Elle porte sur la tête un masque qui entoure complètement son visage et  qui représente quatre têtes de chiens. Il se dresse près d'une des marionnettes et lui aussi lève un bras. Le clown redouble de cris, de chants, de bruits étouffés, il rentre dans un dialogue de pantomimes avec la silhouette de l'autre rive.  
+L'homme aux têtes de chiens avance devant une des marionnettes. Il colle son corps contre le corps de la marionnette. Il pose délicatement sa tête sur son épaule. Il l'enserre alors de ses bras, s'agrippe à ses hanches de bois et commence avec sa jambe et sa hanche à lui donner des secousses sur le côté, comme pour la faire tourner, comme pour le torser. La musique accompagne ses puissantes saccades. Dans mes oreillettes, au-dessus de la musique et des chants du clown, on entend le Chien respirer lourdement.  
+Après quelques minutes, la marionnette se met à pivoter sur son axe. L'homme recule sa tête de chiens quelques secondes. Il recule un instant puis à nouveau enserre le torse de la marionnette de ses bras et tourne de nouveau. Il recommence plusieurs fois, sur le rythme de la musique qui s'accèlere petit à petit, sur le rythme de la prière et des cris du clown, quand soudain il serre plus violemment encore la marionnette et la soulève de terre, la fait tourner et la dépose à terre. La musique s'arrête d'un coup. À ses pieds il a dégagé une trappe dans le sol.  
+
+Le clown lève les bras au ciel et commence à spasmodier quelques mots lents.  
   
-Pendant ce temps, de l'autre côté de la rive, un homme apparaît. Il porte sur la tête un masque constitué de quatre têtes de chiens, qui entoure complètement son visage. Il se dresse près d'une des marionnettes et lui aussi lève un bras. Le clown redouble de cris, de chants, de bruits étouffés.  
-L'homme aux têtes de chiens avance devant une des marionnettes. Il soulève ses bras à l'horizontal puis colle son corps contre le corps du fantoche. Il pose délicatement sur son épaule sa tête aux quatre faces de Chien. Il l'enserre alors le torse de tous ses bras, s'agrippe à ses hanches de bois et commence avec sa jambe et sa hanche à lui donner des secousses sur le côté, comme pour la faire tourner. La marionnette ne bouge pas tout de suite mais après quelques secondes, elle se met à pivoter sur son axe. L'homme rucel sa tête de chiens quelques secondes. Dans mes oreillettes, au-dessus de la musique et des chants du clown, on entend le Chien respirer lourdement, il recule un instant puis à nouveau enserre le torse de la marionnette de ses bras et tourne de nouveau. Il recommence plusieurs fois, sur le rythme de la musique qui s'accèlere petit à petit, sur le rythme de la prière et des cris du clown, quand soudain il souleve la marionnette de terre, la fait tourner et la dépose à terre, dégageant ainsi une trappe dans le sol.  
-La musique s'arrête alors. Le clown lève les bras au ciel et commence à spasmodier quelques mots.  
-  
-Je lève la tête  XXXX Les lumières se rapprochent!!  
-  
+
+
+xxxx
+
 L'ours alors se penche vers le sac à terre et ouvre les pans de tissu pour en découvrir un corps. de loin on ne sait s'il s'agit d'un homme, d'un enfant ou d'un pantin. Le corps est vite jeté dans la fosse, et la marionnette est remise à sa place.  
   
 En face, sur l'autre côté de la rive, les employés en costumes et les figurants sont restés alignés en silence. Maintenant que la marionnette est remise en place, ils commencent à tanguer doucement en rythme. Un chant s'élève entre leurs rangs.  
