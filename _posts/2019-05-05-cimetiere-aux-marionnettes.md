@@ -25,7 +25,7 @@ Il venait de débuter sa journée. Comme souvent, son bateau avait eu du mal à 
 Il était bien avancé dans ce passage, lorsque le bateau s'arrêta dans un cahot. Le moteur tournait encore mais quelque chose avait dû dériver dans l'eau et se glisser entre les rails pour se bloquer sous le bateau.
 
 Il avait lancé une annonce pour demander aux passagers de ne pas s'inquiéter.  
-Il s'était penché par dessus bord et avait regardé ce qui se passait sous l'eau. Entre la travée et le rail, il a vu un crâne d'enfant.  
+Il s'était penché par dessus bord et avait regardé ce qui se passait sous l'eau. Entre la travée et le rail, il a vu un crâne humain.  
 
 Le conducteur a tout de suite prévenu la direction, qui lui a envoyé des plongeurs déguisés en grenouilles, tandis qu'il devait s'assurer que la musique continue de jouer.  
 
@@ -261,41 +261,38 @@ Le prêtre est reparti pour préparer la procession de son côté et je suis res
 
 ## Nuit sans lune  
   
-Il est deux heures du matin. Je me suis installé dans une baraque de cowboys perchée dans les arbres, près de l'attraction la plus proche du petit fleuve. J'ai allumé mon portable, me suis connecté au groupe WhatsApp qui permet de communiquer entre nous. J'ai mis une oreillette et ai muté le micro. Puis j'ai mis sur mon visage un masque de Chien méchant sur le visage, qui me semblait tout à fait ironique, comme j'alais monter la garde.  
+Il est deux heures du matin. Je me suis installé dans une baraque de cowboys perchée dans les arbres, près de l'attraction la plus proche du Fleuve. J'ai allumé mon portable, me suis connecté au groupe WhatsApp qui permet de communiquer entre nous. J'ai mis une oreillette et ai muté le micro. Puis j'ai mis sur mon visage un masque de Canari pour cacher mon visage.  
   
-Quelques employés se retrouvent à l'orée de la forêt le long du fleuve. Ils arrivent par petits groupes, certains à pied, par les îles, certains sur de petites barques de secours qu'ils ont subtilisé pour l'occasion. Les anciens collègues de Sylphide ont gardé leurs costumes de la Parade, les autres ont déjà revêtu des masques eux aussi, de souris, de chiens ou de chats qui leur cachent le visage. On dirait que l'on va sauver tous les animaux de la Création, cette nuit. Ils glissent dans la forêt en silence et se cachent derrière les premiers bosquets de chênes épais.  
+Quelques employés se retrouvent à l'orée de la forêt le long du fleuve. Ils arrivent par petits groupes, certains à pied, par les îles, certains sur de petites barques de secours qu'ils ont subtilisé pour l'occasion. Les anciens collègues de Sylphide ont gardé leurs costumes de la Parade, les autres ont déjà revêtu des masques eux aussi, de souris, de chiens ou de chats qui leur cachent le visage. On dirait que l'on va sauver tous les animaux de la Création, cette nuit. Ou bien c'est nous qui allons être sauvés par ces animaux. Ils glissent dans la forêt en silence et se cachent derrière les premiers bosquets de chênes épais.  
 
 On entend au loin le dernier train qui s'arrête dans la gare principale. Sa sonnerie retentit. Il repart.  
 Je scrute l'étendue du parc. Sous le Grand Huit je vois des lampes torches qui balaient le sol. C'est une des équipes de nuit qui patrouille à l'utre bout du Parc. Je prends mon téléphone.  
 — La voie est libre.  
-A quelques mouvements dans les arbres je comprends que l'on m'entend. Chacun a mis ses oreillettes derrière son masque. On s'entend tous ensemble et on communique dans le silence.  
+A quelques mouvements dans les arbres je comprends que l'on m'entend. Chacun a mis ses oreillettes derrière son masque. On s'entend tous ensemble et on communique dans le silence. La procesion peut commencer.  
 
 Il ne faut pas attendre bien longtemps avant que n'apparaisse les quatre chevaux entourant le corps de Sylphide, recouvert d'un drap blanc. 
 Un grand personnage dans un costume d'ours se place devant le cortège et se met en marche. Il commence à ouvrir le chemin à coup de griffes entre les ronces en plastique et les plantes folles.  
-Le convoi commence son chemin entre des pierres et des arbres hauts, suivi par le cortège hétéroclyte de gens masqués entourés de quelques prêtres habillés comme des égyptiens de bande dessinée. Le cortège est mené par un clown multicolore, aux cheveux verts et violets hirsutes en pics autour d'un masque au sourire figé. Le clown porte un grand pieu sur lequel est figé une sorte d'épouvantail en chiffons et en paille.  
+Le convoi commence son chemin entre des pierres et des arbres hauts, suivi par le cortège hétéroclyte de gens qui portent tous un masque entourés de quelques prêtres habillés comme des égyptiens de bande dessinée. Le cortège est mené par un clown multicolore, aux cheveux verts et violets hirsutes en pics autour d'un masque au sourire figé. Le clown porte un grand pieu en haut duquel est planté une sorte d'épouvantail en chiffons et en paille.  
 
-Par les écouteurs, j'entends s'élever une musique basse, rythmée, un mélange de timbales, de tambourin et d'un violon qui étire les notes au loin.  
+Par les oreillettes, j'entends s'élever une musique basse, rythmée, un mélange de timbales, de tambourin et d'un violon qui étire les notes au loin.  
 
-Tout ce petit cortège se dirige vers le fleuve, lentement.  
 La musique s'amplifie au fur et à mesure qu'ils avancent vers le Fleuve.  
-Arrivés à la rive, La procession se fige. Le clown s'est arrêté soudain et a levé le bras. J'entends maintenant sa voix par le téléphone, il commence à spalmodier en rythme sur les timbales. Il produit un mélange d'anglais, de mots que je ne comprends pas et de claquements de langue, qui me paraissent comme des borborygmes, mais sa voix est forte et il semble comme chanter une prière insensée au rythme des timbales.  
+Le petit cortège se dirige lentement vers le fleuve.  
+Arrivés à la rive, La procession se fige. Le clown devant eux s' arrête et lève le bras. Je peux l'entendre commencer à psalmodier en rythme sur les timbales. Il produit un mélange d'anglais, de mots que je ne comprends pas et de claquements de langue, qui me paraissent comme des borborygmes, mais sa voix est forte et il semble comme chanter une prière insensée au rythme des timbales.  
   
-Pendant ce temps, de l'autre côté de la rive, une silhouette apparaît. Elle porte sur la tête un masque qui entoure complètement son visage et  qui représente quatre têtes de chiens. Il se dresse près d'une des marionnettes et lui aussi lève un bras. Le clown redouble de cris, de chants, de bruits étouffés, il rentre dans un dialogue de pantomimes avec la silhouette de l'autre rive.  
-L'homme aux têtes de chiens avance devant une des marionnettes. Il colle son corps contre le corps de la marionnette. Il pose délicatement sa tête sur son épaule. Il l'enserre alors de ses bras, s'agrippe à ses hanches de bois et commence avec sa jambe et sa hanche à lui donner des secousses sur le côté, comme pour la faire tourner, comme pour le torser. La musique accompagne ses puissantes saccades. Dans mes oreillettes, au-dessus de la musique et des chants du clown, on entend le Chien respirer lourdement.  
-Après quelques minutes, la marionnette se met à pivoter sur son axe. L'homme recule sa tête de chiens quelques secondes. Il recule un instant puis à nouveau enserre le torse de la marionnette de ses bras et tourne de nouveau. Il recommence plusieurs fois, sur le rythme de la musique qui s'accèlere petit à petit, sur le rythme de la prière et des cris du clown, quand soudain il serre plus violemment encore la marionnette et la soulève de terre, la fait tourner et la dépose à terre. La musique s'arrête d'un coup. À ses pieds il a dégagé une trappe dans le sol.  
+Pendant ce temps, de l'autre côté de la rive, une silhouette apparaît. Elle porte sur la tête un masque qui entoure complètement son visage et qui représente quatre têtes de chiens. Il se dresse près d'une des marionnettes plantées le long du Fleuve. Le clown élève alors dans les airs l'épouvantail de chiffon qu'il porte au bout de son pieu et la montre au Gardien de l'autre côté de la Rive, il redouble de cris, de chants, de bruits étouffés et soudain il plante l'épouvantail devant lui dans le sol au bord de l'eau.  
 
-Le clown lève les bras au ciel et commence à spasmodier quelques mots lents.  
-  
+L'homme aux têtes de chiens avance alors devant une des marionnettes plantées le long de la rive du Fleuve. Il colle son corps contre le torse en bois de la marionnette et pose délicatement sa tête sur son épaule. Il l'enserre alors de ses bras, s'agrippe à ses hanches de bois et commence avec sa jambe et sa hanche à lui donner des secousses, comme pour la faire tourner, comme pour le torser. La musique accompagne ses saccades et couvre ses bruits rauques et les chants du clown.  
+Après quelques minutes, la marionnette se met à tourner sur son axe. L'homme recule sa tête de chiens quelques secondes. Il recule un instant puis à nouveau se replace pour aggripper la marionnette et la faire tourner de nouveau sur son axe. Il recommence plusieurs fois, le rythme de la musique s'accèlere petit à petit, sur le rythme de la prière et des cris du clown, quand soudain il saisit plus violemment encore la marionnette et la soulève en entier au dessus sol, la fait basculer sur le côté et la dépose à terre. La musique s'arrête d'un coup. À ses pieds il a dégagé une trappe dans le sol.  
 
+Le clown reprend sa psalmodie de quelques mots lents. L'épouvantail planté devant mui règne de son côté de la rive. Il lève un bras et dévoile une cloche dans sa main, qu'il fait retentir trois fois.  
 
-xxxx
+L'ours se penche sur la civière et prend délicatement le corps dans ses bras. Il se dirige vers le bord de la rive où une petite barque en bois se trouve amarrée, rose et blanche avec une proue en forme de tête de licorne.  
 
-L'ours alors se penche vers le sac à terre et ouvre les pans de tissu pour en découvrir un corps. de loin on ne sait s'il s'agit d'un homme, d'un enfant ou d'un pantin. Le corps est vite jeté dans la fosse, et la marionnette est remise à sa place.  
-  
-En face, sur l'autre côté de la rive, les employés en costumes et les figurants sont restés alignés en silence. Maintenant que la marionnette est remise en place, ils commencent à tanguer doucement en rythme. Un chant s'élève entre leurs rangs.  
+Je descends de ma cache et vais les rejoindre presque en courant. Arrivé, l'ours a déjà déposé sur le fond de la barque le corps enveloppé d'un drap blanc. Je ralentis le pas alors que la barque commence à dériver vers l'autre rive avec à son bord cette ombre blanche. Je la regarde s'éloigner.
   
 > SUITE: Le vigile est toujours là à guetter, il les voit arriver. Il tire sur l'un , qui fuit et tue l'autre d'un coup de pelle  
-> Il rejoindra la processoin avec sa bien aimée et y rajoutera le corps du vigile tué. Ou simplement il le laissera dans l'eau.  
+> Il rejoindra la procession avec sa bien aimée et y rajoutera le corps du vigile tué. Ou simplement il le laissera dans l'eau.  
 > Peut être qu'il se couchera à côté d'elle et la rejoindra lui aussi l'autre rive pour devenir une marionnette.  
 > Du ciel à la terre, la plus basse terre.  
 
