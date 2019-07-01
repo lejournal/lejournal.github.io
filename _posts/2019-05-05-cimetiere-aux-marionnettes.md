@@ -20,7 +20,7 @@ Après six semaines de pluies sans discontinuer, les morts commencèrent à remo
 
 Le premier fut découvert le conducteur du petit train aquatique au Parc de Lost Island.
 
-Il venait de débuter sa journée. Comme souvent, son bateau avait eu du mal à démarrer ce matin-là, mais après quelques râtées il suivait enfin le rail mécanique tracé dans l'eau. Il engageait sa machine dans le canal, entre une île artificielle plantée de palmiers homogènes et de l'autre côté une forêt d'épicéas intercalés entre de petites marionnettes animées.
+Il venait de débuter sa journée. Comme souvent, son bateau avait eu du mal à démarrer ce matin-là, mais après quelques râtées il suivait enfin le rail mécanique tracé au fond de l'eau de la rivière artifielle. Il engageait sa machine dans le canal, entre une île artificielle plantée de palmiers homogènes et de l'autre côté une forêt d'épicéas intercalés entre de petites marionnettes animées.
 
 Il était bien avancé dans ce passage, lorsque le bateau s'arrêta dans un cahot. Le moteur tournait encore mais quelque chose avait dû dériver dans l'eau et se glisser entre les rails pour se bloquer sous le bateau.
 
