@@ -12,10 +12,10 @@ Gianni m'avait recasé. C'était moins exposé, il disait, Ça ne me dérangeait
 Fini le strip au bord de la Nationale, terminé les les routiers polonais et les manutentionnaires picards, le hall en taule c'était du passé, trop froid l'hiver, trop chaud l'été, avec ses coups de vents à déshabiller une stripteaseuse.  
 Tout ça c'était du passé. 
 
-Gianni avait racheté une batisse du XIIe siècle, à deux rues de la Mairie de Louvres. Il avait même réussi à faire financer une partie des travaux par la Région. Il était monté en gamme par la force du poignet il était devenu un monsieur.  
-C'était le 14 juillet pour l'inauguration Gianni avait organisé un bal costumé. C'est tout dire qu ele gratin de la ville s'est radiné, en petits habits loués. La fête batait son plein, dans une demi heure on allait tirer le feu d'artifice. Les gens s'égayaient dans le jardin d'autres dans les étages de la batisse.  
-J'étais en train de donner un coup de chiffon sur le comptoir tout neuf, j'ai vu trois personnes s'asseoir à une table dans le jardin. Ils étaient bien habillés. Le plus grand il portait un costume de clown blanc. Je me suis approché, le clown a tourné sa tête vers moi et m'a fixé.  
-Derrière ses yeux maquillés et sa peau blanche de poudre je l'ai reconnu. J'ai senti tout mon passé qui me regardait.
+Gianni avait racheté une batisse du XIIe siècle, à deux rues de la Mairie de Louvres. Il avait même réussi à faire financer une partie des travaux par la Région. Il était monté en gamme, par la force du poignet il était devenu un monsieur.  
+C'était le 14 juillet pour l'inauguration Gianni avait organisé un bal costumé. C'est tout dire que le gratin de la ville s'est radiné, en petits habits loués. La fête battait son plein, dans une demi-heure on allait tirer le feu d'artifice. Les gens s'égayaient dans le jardin d'autres dans les étages de la batisse.  
+J'étais en train de donner un coup de chiffon sur le comptoir tout neuf, j'ai vu trois personnes s'asseoir à une table dans le jardin. Ils étaient bien habillés. Le plus grand il portait un costume de clown blanc. Je me suis approchée, le clown a tourné la tête vers moi et m'a fixé.  
+Derrière ses yeux maquillés et sa peau blanche de poudre j'ai senti tout mon passé qui me regardait.
 
 
 
