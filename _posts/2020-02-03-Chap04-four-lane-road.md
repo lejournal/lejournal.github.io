@@ -42,5 +42,7 @@ Il a commencé à se débattre en dessous de moi. Il essayait de me faire bascul
 
 Son corps était inerte. Je me suis relevé et je me suis dirigé vers la salle de bains pour reprendre une douche. Mes cheveux allaient être de nouveau mouillés mais tant pis.
 
-Je me suis dirigé près de la fenêtre, nue comme otut à l'heure et j'ai appelé Pierrot pour qu'il vienne récupérer Sébastien.
+Après la douche, j'ai traversé le salon, nue comme tout à l'heure, devant la glace, mais sans mes talons, je suis allée à la fenêtre et j'ai appelé Pierrot, qui était en bas, pour qu'il vienne récupérer Sébastien.
 
+
+> Évidemment Pierrot apprécie pas spécialement que Charlotte se soit occupé de tout, il voulait le cueillir à la sortie de l'appartement c'était le plan initial. Elle ne se justifie même pas elle s'en fout. Elle comprend que ce qui l'intéresse c'est de tuer de pêter des gueules et pas la petite histoire de kidnapping à deux balles.
