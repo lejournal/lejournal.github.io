@@ -1,48 +1,47 @@
 ---
 layout: default
-title:  "Eleven am"
-date:   2020-03-11 20:20:20 +0100
+title:  "four lane road"
+date:   2020-03-03 20:20:20 +0100
 categories: littérature atelier
-comment: Hooper Ménopause dépression et sensualité
+comment: Hooper
 ---
-## Eleven AM
+## Four lane road
 
-Pierrot a loué une chambre à Creil, pas trop loin de Louvres et direct en RER. Il a voulu être discret. Il est passé par Le Bon Coin pour trouver la garçonnière.
+-- Salut, Charlotte.  
+Le clown avait une cigarette plantée dans sa rouge d'un rouge écarlate. Il l'a prise en son milieu et l'a jetée à terre, puis l'a écrasé sous sa semelle immense.
 
-J'attends ma proie, le petit Sébastien. Ça a été facile de le faire tomber dans mes filets. C'est l'été. Le petit Sébastien va à la piscine presque tous les jours. Je me suis acheté un petit bikini à fleurs rouges et j'ai traîné mes kilos en trop du coté du grand bassin. On abeau dire, les athlètes ça aime la chair fraiche. Au bout de deux séances au bord de l'eau, j'ai invité Sébastien à prendre un café. Il se sentait fort. Il m'a tout raconté, sa vie de stagiaire dans le garage de son père. Son BTS. Ses futurs vacances à Biarritz avec des copains. J'en revenais pas, d'un coup j'étais sa proie, il n'y voyait que du feu, il se sentait un homme, il se sentait chasseur alors que c'est lui que j'étais en train de chasser.
+Il alternait les gestes lents et les gestes violents, en silence, puis me regardait d'un coup.  
+-- Alors... Tu n'es pas contente de me voir?  
+-- La dernière fois que je t'ai croisé tu portais des menottes. A ce que je vois, tu as toujours le goût du déguisement?  
+Son front blanc plissait légérement, il avait fait chaud à en crever, je n'arrivais pas à deviner si les perles de sueur étaient provoquées uniquement par la canicule.  
+Il a fait un petit geste en direction des deux gars qui l'accompagnaient. Ils étaient habillés en marins du Kursk, enfin une tragédie dans le sens.
+-- Je te présente Pipo et Mario, mes nouveaux amis. Je fais dans la comédie en ce moment, les films muets, les deux lascars ne parlent qu'urkrainien.  
+-- Vous êtes venus pour une partie à trois? que je lui ai fait. Pas de chance Les soirées gay c'est le jeudi. Mais peut être que vous pouvez prendre une chambre.  
 
-Je le trouvais beaucoup moins bourgeois et thuné que j'espérais, encore un de ces plans à la Pierrot, bien boiteux.
+"Assez"
+Le clown il a commencé à crier, en même temps j'ai entendu les premiers pétards de feu d'artifice exploser au loin dans la rue.
 
-On était dimanche. Rendez-vous donné à 11h (à Sébastien). En attendant je m'ennuyais dans la chaleur de l'été, sous le toit de l'appartement au 2e étage.
+-- J'ai passé trois ans à l'ombre et tu sais que je ne t'ai pas dénoncé. Aujourd'hui tu viens payer ta dette.  
+J'ai rien dit j'ai regardé ses yeux.  
+-- Tu sais j'ai gardé les films de nos exploits. Tu te rappelles? Quand on faisait chanter les gars dans l'immobilier à Ory-la-Ville? Tu ne t'ai jamais demandé pourquoi les flics n'avaient pas resorti les films, pendant le procès? Tu te souviens? Les films àoù on te voit draguer, allumer complètement et les attirer chez toi, et les films dans la cave... Je les ai encore, ma poulette. Tu me regardais pourtant à l'époque quand je te filmais. On savait se parler à l'époque, on se comprenait.
+Il n'avait pas changé... Je ne me souvenais plus de son nom, ça me tracassait. J'essayais de le retrouver derrière son maquillage.
 
-J'ai pris une douche pour m'éclaircir les idées, puis, sans prendre le temps de me sécher, j'ai mis mes talons et j'ai marché comme une damedevant le grand miroir dans le salon meublé.
-
-J'ai regardé par la fenêtre et j'ai vu Sébastien traverser la rue, il a levé la tete et m'a aperçu, ainsi, nue comme au premier jour pour lui d'une nouvelle vie.
-
-Lorsqu'il est entré dans l'appartement, j'ai passé mon bras derrière son cou et je l'ai embrassé à plein bouche sans lui laisser le temps de comprendre ce qui lui arrivait. Je voulais le mettre mal à l'aise, c'est moi qui commandait maintenant.
-
--- Viens t'installer près de moi, je lui ai mumuré à l'oreille. Laisses moi faire
-
-Je l'ai poussé sur le lit et ai grimpé à califourchon sur lui. Je sentais sa ceinture de fer Gucci contre mon sexe, il a essayé de se relever sur ses coudes j'ai passé mes mains derrière son corps et j'ai tiré sur son tee-shirt qui collait à son corps humide et qui puait la sueur. J'ai mis mes mains sur ses épaules et je l'ai repoussé contre le lit, je l'ai embrassé, furieusement, crûment, comme il révait qu'on l'embrasse, je lui ai mordu les lèvres et j'ai senti le goût du sang dans ma bouche, une sensation âpre et rugueuse au fond de ma langue. Je me suis redressée sur lui, je respirais fort, comme si j'étais excitée.
-
-Je me suis reculée j'ai pris son ceinturon et j'ai tiré d'un coup dessus, pour défaire sa ceinture. J'ai ouvert son pantalon, l'ai saisi à pleine main  je l'ai tiré jusqu'à ce qu'il arrive à la hauteur des genoux de Sébastien. 
-
--- Tu es magnifique, tu es à moi, je lui ai fait en souriant.
-
-Je me suis réinstallé sur Sébastien, contre son corps tendu sous moi.
-
-Je l'ai laissé me regarder en train de me tortiller, passer les mains dans les cheveux, je lui ai dit "Regardes moi", il était hypnotisé, incapable de bouger, comme un gamin devant la télé. Je me suis penché sur lui, j'ai senti mes seins se coller contre sa bouche, pendant que je soufflais fort et accompagnais mes gestes,  j'ai attrapé le bout du drap qui trainait derrière sa tête sur le lit défait. Son sourire niais. 
-J'ai déchiré le drap en une lanière, avec un grand geste théatral et j'ai passé les bouts du drap contre son torse. Avec la lanière, j'ai commencé à faire un noeud à son poignet. Il s'est mis à rire nerveusement, il avait perdu l'usage de la parole,  je gardais un oeil sur son visage tout en jouant avec lui, je laissais trainer les lanières froides au dessus de son visage et sur son corps pour t'exciter doucement.
-
-Je me suis penché à nouveau au dessus de lui et j'ai passé la lanière dans les montants du lit à baldaquin. J'ai tiré doucement sur la lanière, son bras droit est passé au dessus de sa tete. J'ai fait repasser la lanière autour du montant du lit. Je tenais fermement le bout de tissu de ma main gauche, j'ai descendu mon visage vers son aisselle et, en la laissant doucement trainer mes cheveux contre son bras, j'ai planté mes ongles profondément dans sa chair. Sébastien s'est tortillé en laissant échapper un cri indistinct, J'ai saisi son poignet gauche et me suis affalé contre son bras pour qu'il passe lui aussi au dessus de sa tête. J'ai saisi son poignet entre le bout de mes doigts et en passant bien délicatement le tissu contre les parties les plus fines de son poignet, j'ai entouré son poignet avec la lanière j'ai passé le bout de la lanière sous le tissé, pour faire un noeud, et j'ai serré d'un coup, violemment. Sébastien ne résistait pas, il s'offrait à mes liens. J'ai serré le plus fort que j'ai pu. Voilà, Sébastien est maintenant solidement attaché au lit. J'ai mis le reste du drap dans sa bouche pour qu'il ne puisse pas hurler.
-
-> Ici il se débat elle le roue de coups
-
-Il a commencé à se débattre en dessous de moi. Il essayait de me faire basculer, alors j'ai pris ses cheveux de la mains gauche et de la main droite je l'ai frappé au visage, main ouverte, une fois, deux fois, puis j'ai fermé ma main et j'ai visé l'oeil, encore, puis j'ai enchaîné, droite, gauche, mes mains me faisaient mal à frapper, sa tête volait, à droite à gauche. J'ai saisi le ceinturon qui était encore près de nous je l'ai utilisé pour lui frapper au visage, à l'oeil, à la tempe.
-
-Son corps était inerte. Je me suis relevé et je me suis dirigé vers la salle de bains pour reprendre une douche. Mes cheveux allaient être de nouveau mouillés mais tant pis.
-
-Après la douche, j'ai traversé le salon, nue comme tout à l'heure, devant la glace, mais sans mes talons, je suis allée à la fenêtre et j'ai appelé Pierrot, qui était en bas, pour qu'il vienne récupérer Sébastien.
+Et tout d'un coup c'est revenu. Pierrot que je l'appelait. Déjà à l'époque. Comme si le nom de ramenait des années en arrière, quand je faisait la greluche pour attirer les zigotos d el'immobilier à Orry-La-Ville. Je me souvenais maintenant, la cave, les vidéos, pour faire chanter les gus, ils crachaient tous au bassinet, ça a été le boulot le plus facile de ma vie. Jusqu'à cet accident, avec le gars un peu plus petit qui voulait pas payer. Il s'est énervé, je me suis énervé, Pierrot derrière la caméra, tu parles, il a tout filmé. Le gars a jamais porté plainte. Se faire dérouiller par une gonzesse, il avait sa vie à assurer derrière.
 
 
-> Évidemment Pierrot apprécie pas spécialement que Charlotte se soit occupé de tout, il voulait le cueillir à la sortie de l'appartement c'était le plan initial. Elle ne se justifie même pas elle s'en fout. Elle comprend que ce qui l'intéresse c'est de tuer de pêter des gueules et pas la petite histoire de kidnapping à deux balles.
+-- Et tu veux quoi? Je lui ai fait.
+
+-- J'ai un petit job à te proposer. 
+
+-- Casses-toi vite faite, je lui ai envoyé. C'est fini c'est du passé maintenant j'ai une nouvelle vie.  
+Rien que de lui envoyer ça, de lui raconter un telle énormmité, ça m'a tout retourné, j'ai bien vu qu'il m'a pas cru même à moitié, rien du tout, il m'a juste regardé il et ila vu une rouquine serveuse dans un club échangiste.
+
+-- Tu vas voir c'est qu'un petit coup tu vas adorer, on va aller taquiner le bourgeois, Pierrot a continué. On a repéré une famille ils sont plein aux as, je sais pas ce qu'ilf foutent par ici. Ils ont un fils de 8 ans. On va le kidnapper.
+
+J'avais envie de lui envoyer mon plateau à travers la gueule, lui balancer le coca, le whisky, les anisettes à la tête, mais quelque chose m'a ratenu, j'ai comme qui dirait réfléchi, pour cette histoire de vidéo, j eme suis dit qu'il avait pas tord.
+
+Moi qui révait de faire carrière dans le cinéma, j'avais pas super envie que mes premiers spectateurs soient des flics.
+
+J'imaginais déjà les parents des kidnappés, qui se rongeraient le sang, la famille dévastée, accablée. le père qui attend un coup de fil dans le jardin, la mère elle regarde par la fenêtre, il espèrent des instructions.
+
+
