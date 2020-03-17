@@ -7,7 +7,7 @@ comment: Hooper
 ---
 ## Four lane road
 
-![Four lane road](four-lane-road-500.png "Four Lane Road - Edward Hopper.")
+![Four lane road](/assets/four-lane-road-500.png "Four Lane Road - Edward Hopper.")
 
 -- Salut, Charlotte.  
 
