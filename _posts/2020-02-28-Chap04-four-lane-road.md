@@ -1,12 +1,13 @@
 ---
 layout: default
-title:  "Chapitre 4: Four lane road"
+title:  "Chapitre 04: Four lane road"
 date:   2020-03-03 20:20:20 +0100
 categories: littérature atelier
 comment: Hooper
 ---
 ## Four lane road
 
+![Four lane road](four-lane-road-500.png "Four Lane Road - Edward Hopper.")
 
 -- Salut, Charlotte.  
 

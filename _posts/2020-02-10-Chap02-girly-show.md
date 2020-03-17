@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "Girly show"
+title:  "Chapitre 02: Girly show"
 date:   2020-02-10 20:20:20 +0100
 categories: littérature atelier
 comment: Hooper

@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "Blue night"
+title:  "Chapitre 03: Blue night"
 date:   2020-02-27 20:20:20 +0100
 categories: littérature atelier
 comment: Hooper

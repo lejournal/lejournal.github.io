@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "Suite..."
+title:  "Chapitre 02 suite... Suite du monstre"
 date:   2020-02-24 20:20:20 +0100
 categories: littérature atelier
 comment: Hooper
