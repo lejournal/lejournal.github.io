@@ -7,6 +7,8 @@ comment: Hooper
 ---
 ## Blue night
 
+![Blue night](/assets/blue-night-hopper-450x230.jpg "Blue night - Edward Hopper.")
+
 J'ai appris 15 jours après pourquoi Gianni m'avait gardé. Il voulait que je travaille en tant que serveuse dans son nouveau lieu de plaisir, le nouvel Eden Club qu'il venait d'ouvrir en ville.  
 Gianni m'avait recasé. C'était moins exposé, il disait, Ça ne me dérangeait pas de ne pas danser, la paie était moins bonne mais j'avais moins de pervers et plus de pouboires. Et je reprenais le même boulot qu'auparavant au macdo, serveuse, c'était une forme de rétablissement, un accomplissement, éviter la décadence, je pouvais me remettre à rêver de mettre les bouts d'ici.  
 Fini le strip au bord de la Nationale, terminé les les routiers polonais et les manutentionnaires picards, le hall en taule c'était du passé, trop froid l'hiver, trop chaud l'été, avec ses coups de vents à déshabiller une stripteaseuse.  

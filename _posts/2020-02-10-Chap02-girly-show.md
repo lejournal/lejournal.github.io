@@ -5,6 +5,13 @@ date:   2020-02-10 20:20:20 +0100
 categories: littérature atelier
 comment: Hooper
 ---
+
+## Girly show
+
+![Girly show](/assets/girly-show-hopper.jpg "Girly show - Edward Hopper.")
+
+
+
 C'était le matin. J'étais allongée sur le dos.  
 Maintenant que j'avais été virée de chez Mac Do, j'envisageais toutes les possibilités pour me refaire un peu d'argent.  
 De toutes façons à Roissy j'étais grillée comme du petit pain, tabasser les clients à coup de plateau, ça plombe une réputation, il faut dire.  

@@ -5,6 +5,13 @@ date:   2020-02-02 20:20:20 +0100
 categories: littérature atelier
 comment: Hooper
 ---
+
+## Nighthawks
+
+![Nighthawks](/assets/640px-Nighthawks_by_Edward_Hopper_1942.jpg "Four Lane Road - Edward Hopper. Par Edward Hopper — http://www.artic.edu/aic/collections/artwork/111628, Domaine public, https://commons.wikimedia.org/w/index.php?curid=25899486")
+
+
+
 - C'est gentil d'être venu me chercher, tu n'aurais pas dû venir.
 J'avais le dos tourné à l'entrée de la porte du bar. Le Bar du Dernier Appel. Quel nom pour siroter un fanta frambroise. A minuit passé. J'avais entendu la porte d'ouvrir avec nu fracas de glace et d'acier, j'étais sûr que c'était Jacky. Il faut pouvoir compter sur ses exs, surtout en cas de coup dur. Il faut se serrer les coudes entre malheureux.
 
