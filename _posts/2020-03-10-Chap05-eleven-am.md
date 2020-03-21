@@ -7,6 +7,10 @@ comment: Hooper Ménopause dépression et sensualité
 ---
 ## Eleven AM
 
+
+![Eleven A.M.](/assets/eleven-am-hopper.jpg "eleven AM - Edward Hopper.")
+
+
 Pierrot s'est occupé de louer une chambre à Creil, pas trop loin de Louvres et direct en RER. Il a voulu être discret. Il est passé par Le Bon Coin.
 
 J'attends ma proie. Ça a été facile de le faire tomber dans mes filets. C'est l'été. Le petit Sébastien va à la piscine de Louvres presque tous les jours. Je me suis acheté un petit bikini à fleurs rouges et j'ai traîné mes kilos en trop du coté du grand bassin. On a beau dire, les athlètes ça aime la chair fraiche. Au bout de deux heures au bord de l'eau, on était j'étais invité Sébastien à prendre un café. Il se sentait fort. Il m'a tout raconté, sa vie de stagiaire dans le garage de son père. Son BTS. Ses futurs vacances à Biarritz avec ses copains. J'en revenais pas, j'étais sa proie, il n'y voyait que du feu, il se sentait un homme, il se sentait chasseur alors que c'est lui que j'étais en train de chasser.
