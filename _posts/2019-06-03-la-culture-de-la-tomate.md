@@ -5,20 +5,20 @@ date:   2019-06-03 01:16:36 +0100
 categories: littérature atelier
 ---
 
-**8 décembre 2009**  
+**8 décembre 2009, Fleury**  
 
 Plus que 8 mois à tirer, remises de peine comprises.  
 
 Je commence mon projet de vie. " Il faut préparer la sortie ", ils disaient. 
 
-Ça m'est venu au hasard de la nuit. Je me suis réveillé, la télé était allumée.  
-Une émission de botanique. "Cultivez votre jardin".  
-J'étais tellement dans les choux. Je me suis senti visé. Marre. Depuis le temps. Ils avaient raison.
+Ça m'est venu au hasard de la nuit. Je me suis réveillé. Télé allumée. Une émission de botanique.  
+"Cultivez son jardin", qu'ils disaient.  
+J'étais tellement dans les choux, je me suis senti visé. Marre. Depuis le temps... Ils avaient raison.
 
 Il faut cultiver son jardin.  
 Mon jardin à moi c'est la télé.
 
-Pas le choix... Alors voici ma recette.  
+Pas le choix... Alors voilà ma recette.  
 
 ### La jardinière de la Santé.
 1) Manger des yaourts tous les soirs, et récupérer les pots.
@@ -41,13 +41,13 @@ Ah oui, surveillez bien les racontards. Les gens de mon quartier croient que je 
 
 
 **3 mars 2010**  
-J'en peux plus de surveiller mes pots de yaourts. D'abord ils seront trop petits. Je vais passer au modèle au dessus des pots de protéïnes. Vive le sport.  
+J'en peux plus de surveiller mes pots de yaourts. D'abord ils sont trop petits. Je vais passer au modèle supérieur, aux pots de protéïnes. Vive le sport.  
 
 **18 mars 2010**  
 La France est qualifée pour la coupe du monde.  
-Il y a trop de politique à la télé. La lumière est complètement noire. Mes légumes jaunissent. 
-Je me suis fait la coupe du monde de rugby, c'était parfait.  
-À la demi finale, les premières tiges sortaient.  
+Il y a trop de politique à la télé. La lumière est complètement obscure. Mes légumes jaunissent. 
+Je me suis fait la coupe du monde de rugby, je valide.  
+À la demi finale, sortaient les premières tiges.  
 
 Je les regarde tous. Les sportifs. Eux je vais leur balancer des courgettes.  
 Les politiques: des aubergines.  
