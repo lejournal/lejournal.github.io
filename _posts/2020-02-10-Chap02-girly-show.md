@@ -17,8 +17,8 @@ Maintenant que j'avais été virée de chez Mac Do, j'envisageais toutes les pos
 De toutes façons à Roissy j'étais grillée comme du petit pain, tabasser les clients à coup de plateau, ça plombe une réputation, il faut dire.  
 Je voulais quitter cette vie toxique, cet aéroport, le bruit des avions, partout, tout le temps. J'avais plus qu'une envie, une nouvelle vie. Partir aux États-Unis, devenir actrice.  
 Du talent, je savais j'en avais, ça m'a fait penser à Gianni, le tenancier de l'Eden Club, à Louvres. Il m'avait déjà mis le pied à l'étrier, quans j'avais 16 ans et plus rien, déjà, sinon de l'espoir, chez lui j'avais fait mes premières armes de comédienne et de danseuse. Dans des spectacles pour adultes.  
-C'était pas bien (payé, comine?) mais on rigolait bien à l'époque avec les copines.  
-L'Eden Club. J'ai basculé au dessu sdu corps de Jacky, qui dormait encore et j'ai saisi mon portable.  
+C'était pas bien payé mais on rigolait bien à l'époque avec les copines.  
+L'Eden Club. J'ai basculé au dessus du corps de Jacky, qui dormait encore et j'ai saisi mon portable.  
 Gérard... Gianni c'était son nom de sc-ne, en vérité il s'appelait Gérard Jugnot. Mais le nom était déjà pris et pour s'imposer dans le monde du cabaret, s'appeler come un petit acteur français, c'était pas une option.
 Gianni. Je l'ai retrouvé alors que Jacky commençait à grommeler. Je l'ai poussé hors du lit. Pendant qu'il allait me préparer le café j'ai eu Gianni, rendez-vous était pris pour le soir même. Je tombais bien, sa danseuse vedette était indisposée, il m'a dit, elle avait la grippe colombienne et les flics lui aaient prescrit de rester 3 semaines à la prison de Réaux pour se remettre d'aplomb, ça l'a fait rigoler le Gérard.  
 Jacky est parti bosser. Je suis restée dans son lit à regarder Netflix, je voulais étudier le jeu des actrices. Puis il y avait de quoi fumer chez Jacky. J'ai scotché sur un documentaire, il s parlaient des tableaux modernes au Louvres, à Paris. S'ils savaient. Le soir c'est moi allait devenirun vrai tableau moderne, j'ai pensé. L'art est pas dans les musées, il est dans les clubs privés, quand Daisy remue son popotin.  
