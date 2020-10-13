@@ -1,3 +1,4 @@
+
 ---
 layout: default
 title:  "Le traitement de la donnée"
@@ -5,20 +6,20 @@ date:   2019-02-05 00:46:36 +0100
 categories: ambition 2022 
 ---
 
-Je suis un spécialiste du traitement de la donnée. Elle entre par mes doigts, elle parcourt mes branchements, mes cables, elle traverse les nuages et s’enfuit en cellules. Je suis informaticien. J’ai du mal à me lever le matin, du mal à à me coucher le soir, entre les deux, rien. Je programme. J’écris du code, toute la journée.
+Je suis un spécialiste du traitement de la donnée. Elle entre par mes doigts, elle parcourt mes branchements, mes cables, elle traverse les nuages et s’enfuit en cellules. Je suis informaticien. J’ai du mal à me lever le matin, du mal à me coucher le soir, entre les deux, rien. Je programme. J’écris, du code, toute la journée.
 
-Prends ce fichier JSON et tu le parses. Tu le déstructures, tu le casses en morceaux et tu le conduis, tout détruit qu'il est, dans ton langage. Ce fichier sans fin qui fait déjà des milliards de lignes et qui n'en finit pas, est écrit par Kafka, il contient toutes les coordonnées de tous les téléphones de la société. Ce fichier les suit à la trace.
+Prends ce fichier JSON et tu le parses. Tu le déstructures, tu le casses en morceaux et tu le conduis, tout détruit qu'il est, dans ton langage. Ce fichier sans fin qui fait déjà des milliards de lignes et qui ne connaîtra jamais de fin, est écrit par Kafka, il contient toutes les coordonnées de tous les téléphones de la société. Ce fichier les suit à la trace.
 
 On t'a enlevé tous les noms. Tu connais tout le monde, pourtant, par son ID. 
 
 Tu regardes 2db7412.  
-Lui comme tout les autres tu le suis comme une onde, dans ton système il est une onde. Il descend la Seine. Tu le projettes sur ta carte. Il est lent, il glisse sur l'eau, en cette douce nuit d'été, il passe près de la Tour Eiffel, il est minuit, la Tour s'illumine. Avec lui, avec elle, il y a b8742ae à ses côtés. Mais aussi c70e133, 252dc0d, et d'autres encore, d'autres ID tous uniques.
+Lui comme tout les autres tu le suis comme une onde, dans ton système il est un point qui varie dans un espace à trois dimensions. Il descend la Seine. Tu le projettes sur ta carte. Il est lent, il glisse sur l'eau, en cette douce nuit d'été, il passe près de la Tour Eiffel, il est minuit, la Tour s'illumine. Avec lui, avec elle, il y a b8742ae à ses côtés. Mais aussi c70e133, 252dc0d, et d'autres encore, d'autres ID tous uniques.
 
-Son vrai nom est 7c4ab266-8001-43ef-959c-fdef70155cd2 mais tu l'a renommé 2db74120ad7115794c76edc925283f8edae4de25 pour ton travail et en vérité les 7 premières lettres suffisent pour l'identifier sans te tromper et tu l'appelles le plus souvent 2db7412.  
+Son vrai nom est 7c4ab266-8001-43ef-959c-fdef70155cd2 mais tu l'a renommé 2db74120ad7115794c76edc925283f8edae4de25 dans ton système mais en vérité les 7 premières lettres de son identifiant suffisent pour le reconnaître sans te tromper et tu l'appelles le plus souvent 2db7412.  
 
 b8742ae dévie de sa route, elle quitte la Seine, elle accélère, elle court presque. 2db7412 essaie de la rattraper mais après 200 mètres, ralentit et s'arrête, 2db7412 ne peut la rejoindre, elle continue sa route à la même vitesse vers l'ouest, il s'est arrêté dans un parc. Peut-être qu'elle l'a quitté. Peut-être a-t'il essayé de l'embrasser, elle s'est levée dès le bateau à quai et elle s'est échappée. Peut-être qu'ils ne se connaissent pas. L'identifiant disparait près d'un bouche de métro.
 
-La nuit les ID tournent en rond dans la ville. Ils se regroupent autour de la Bastille, de République. Malheureusement je ne sais à quelle hauteur. Les identifiants sont en deux dimensions. Si je savais à quels étages ils sont, je pourrais les regrouper en chambres, en fêtes, en dîners. Parfois les signaux s'alignent si précisément, qu'ils dansent les uns sur les autres. Les beaux jours sont propices aux rencontres dans des immeubles parisiens. Deux ou trois ID se retrouvent un soir, bientôt rejoints par quelques autres ondes de leurs connaissances. Des gens qu'ils côtoient dans des écoles ou des locaux d'entreprises. Le plus souvent les ondes se sont déjà rencontrées ailleurs, il y a quleques minutes, quelques heures ou quelques semaines, peu importe, c'est ce que je nomme affinité. Mais parfois ils ne forment qu'un empilement de données qui apparaissent éparses, pourtant elles sont si faciles à rassembler. On pourrait pratiquement trouver un point commun à tous les points d'un lieu.
+La nuit les ID tournent en rond dans la ville. Ils se regroupent autour de la Bastille, de République. Malheureusement je ne sais à quelle hauteur. Les identifiants sont en deux dimensions. Si je savais à quels étages ils sont, je pourrais les regrouper en chambres, en fêtes, en dîners. Parfois les signaux s'alignent si précisément, qu'ils dansent les uns sur les autres. Les beaux jours sont propices aux rencontres dans des immeubles parisiens. Deux ou trois ID se retrouvent un soir, bientôt rejoints par quelques autres ondes de leurs connaissances. Des gens qu'ils côtoient dans des écoles ou des locaux d'entreprises. Le plus souvent les ondes se sont déjà rencontrées ailleurs, il y a quleques minutes, quelques heures ou quelques semaines, peu importe, c'est ce que je nomme affinité. Mais parfois ils ne forment qu'un empilement de données qui apparaissent éparses, pourtant elles sont si faciles à rassembler. On pourrait pratiquement trouver un point commun à tous les éléments d'un lieu.
 
 D'autres ondes déambulent le long des rues. A leur vitesse, à leur parcours, je peux deviner si ce sont des taxis ou des badauds à la recherche d'une épicerie. Les ID se croisent, s'arrêtent. Les ondes forment d'autres ondes. La nuit avance.
 
