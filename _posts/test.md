@@ -1,0 +1,1219 @@
+[]{#anchor}Chapitre 1 : Nighthawks
+
+\- Tu n\'aurais jamais dû venir.
+
+J\'étais assise au comptoir du Bar du Dernier Appel, à Roissy bien après
+minuit. Quel nom bien choisi pour siroter un fanta citron à six euro en
+attendant un départ pour l'ailleurs. Le dos tourné à l\'entrée. J\'ai
+entendu la porte s\'ouvrir avec un fracas de glace et d\'acier, c\'étais
+Jacky à coup sûr, dans son style emporté.
+
+-   J\'ai reçu ton message, j'ai tout de suite sauté dans la voiture
+    pour te retrouver. Qu\'est-ce qui s\'est passé?
+
+Il faut pouvoir compter sur ses ex, surtout en cas de coup dur. On se
+serre les coudes entre malheureux.
+
+-   Je t\'ai tout expliqué, dans le SMS. Je me suis fait virer.
+
+Mais c\'est qu\'il insiste, il me demande, il paraît que ça l'intéresse,
+c\'est arrivé quand.
+
+À ton avis, tu crois que je traîne dans les bars d\'aéroport la nuit
+pour faire la jolie dans le décor? Tout à l\'heure c\'est arrivé.
+
+-   On vous sert quelque chose?
+
+Le barman qui s\'était approché sans que je le repère.
+
+-   Non, on va partir.
+-   Un whisky pour moi, Jacky il fait. Allez, mettez en deux. Il veut
+    fêter ça. Perdre son boulot au Mac Do ça se fête non? Tu crois pas,
+    Charlotte, qu\'il me fait?
+
+Jacky il avait toujours des idées derrière la tête, même s'il n'en avait
+pas beaucoup des idées, mais c\'était toujours un peu les mêmes, boire,
+me faire boire et se vautrer sur moi dans sa Ford Escort quand il était
+trop tard pour attraper le bus de nuit. Je l\'aimais bien Jacky, un
+comptable chez Speedy ça rassure, ça fait pas de bruit. Tu peux le
+repousser facilement. Et puis ça dépanne, la preuve.
+
+-   Jacky on y va.
+
+Mais c\'est qu\'il insiste il la veut son histoire.
+
+-   C\'est comme d\'habitude tout ça, je venais de finir mon service,
+    j'avais pris une petite frite avant de partir, je l'avais sur mon
+    plateau, tranquille tu vois. Un client il a voulu vérifier ce que
+    j\'avais sous la robe, c'était le troisième de la journée. \"Viens
+    comme tu es\", ils disent pourtant dans la pub. Le client il a pensé
+    je pouyvais pas me défendre, l\'erreur. Le plateau que j'avais dans
+    les mains, je lui ai envoyé en plein dans sa face de rat écrasé.
+    C\'est son nez qui a pas aimé, j\'y peux rien moi les gens sont
+    fragiles, après je me souviens plus de tous les détails, il est
+    tombé de sa chaise, il mettait ses mains devant lui pour se
+    protéger, mais j'ai senti son oeil sous mon poing, j'ai senti qu'on
+    m'a attrapé par les bras, alors j'ai bien dû m'arrêter.
+
+Jacky ça lui avait fait oublier son whisky. J\'ai bu le mien en
+attendant.
+
+-   Mais il était tout seul le gars? Et tu t'es fait virer alors que tu
+    avais fini ton service?
+
+Il ne croyait pas ce qu'il entendait comme histoire, il doutait de ma
+réalité, es yeux se sont mis à me parcourir, il m'a dévisagé, puis ses
+yeux se sont jeté dans mon décolleté, c\'était pas l\'alcool qui lui
+donnait du désir, non ses yeux s'aggrandissaient, il a commencé à porter
+un coup ses mains sur les genoux, un coup sur le comptoir, il n'arrivait
+pas à se décider où les poser, entre son corps, ses yeux et son whisky.
+J\'ai baissé mes yeux pour me figurer ce qui le rendait nerveux comme un
+vibromasseur, voir ce qui le troublait. J\'avais ma petite robe rouge,
+ma petite robe, ma plus belle robe, ma seule jolie robe en vérité. Au
+milieu, en dessous du décolleté deux tâches de sang séché\...
+
+J\'ai pris le verre de Jacky de ses mains je l\'ai sifflé ça m\'a un peu
+remis au clair.
+
+-   Allez, c'est fini.
+
+Il faudra que je trouve une nouvelle robe, si je veux faire bonne
+impression, de toutes façons il faudra tout recommencer, à zéro, s\'en
+aller, tout rattraper, avec cette tâche sur la robe ça sera pas de la
+tarte.
+
+[]{#anchor-1}Chapitre 2 : Girly show
+
+C\'était le matin. J\'étais allongée sur le dos.
+
+Maintenant que j\'avais plus d'emploi, il fallait que j\'envisage de me
+refaire un peu d\'argent.
+
+De toutes façons, à Roissy j\'étais grillée comme du petit pain,
+tabasser les clients, ça plombe une réputation, il faut comprendre.
+
+Je voulais quitter cette vie toxique, les avions, partout, tout le
+temps, qui te passent par dessus la tête. Tu as beau avoir ton
+appartement ton loyer, tu y penses aux gens qui sont dans les avions,
+aux gens qui vont quelque part. J'aurais bien aimé en faire partie moi
+aussi, décoller du bitume, qu'on m'amène un petit déjeuner et qu'on me
+demande mon avis. Thé ou café? Un petit jus d'orange? Ah madame vous
+allez quelque part? New-York? Partir aux États-Unis, devenir célèbre.
+Actrice.
+
+J\'en ai toujours eu beaucoup du talent. Ça m\'a fait penser à Gianni,
+le tenancier de l\'Eden Club, à Louvres. Il m\'avait déjà mis le pied à
+l\'étrier, quans j\'avais 16 ans et plus rien, déjà, sinon de l\'espoir,
+chez lui j\'avais fait mes premières armes de comédienne et de danseuse
+dans des spectacles pour adultes.
+
+C\'était pas bien payé mais je rigolais bien à l\'époque avec les
+copines.
+
+L\'Eden Club. J\'ai basculé au dessus du corps de Jacky, qui dormait
+encore et j\'ai saisi mon portable.
+
+Gianni c\'était son nom de scène, dans la réalité il s\'appelait Gérard
+Jugnot. Mais le nom était déjà pris et pour s\'imposer dans le monde du
+cabaret, il lui fallait qu'on le connaisse pour lui et pas qu'on le
+confonde avec un petit acteur français, c\'était pas une option.
+
+Gianni. Je l\'ai retrouvé. Jacky commençait à grommeler, je l\'ai poussé
+hors du lit. Pendant qu\'il est allé me préparer le café, j\'ai
+téléphoné, rendez-vous était pris pour le soir même. Je tombais bien, sa
+danseuse vedette était indisposée, il m\'a dit, elle avait la grippe
+colombienne et les flics lui avaient prescrit de rester 3 semaines à la
+prison de Réaux pour se remettre d\'aplomb, ça l\'a fait rigoler le
+Gérard.
+
+Jacky est parti bosser. Je suis restée dans son lit à regarder Netflix,
+je voulais étudier le jeu des actrices. Puis il y avait de quoi fumer.
+J\'ai scotché sur un documentaire, ils parlaient des tableaux modernes
+au Louvres, à Paris. S\'ils savaient. Le soir c\'est moi allait devenir
+un vrai tableau moderne, j\'ai pensé. L\'art est pas dans les musées, il
+est dans les clubs privés, quand Daisy remue son arrière-train.
+
+Jacky est revenu, j\'étais prête, j\'avais remis ma petite robe, même si
+elle était tâchée, je me suis dit que Gianni saurait la laver, avec ses
+connexions dans le milieu, surtout que sur scène à l\'Eden Club c\'était
+pas l\'endroit où j'aurais besoin de mes vêtements.
+
+Jacky m\'a déposé devant en voiture en chemin vers son boulot, je lui ai
+dit de revenir à deux heures.
+
+J\'ai fait la bise au videur, pourtant je ne l\'ai pas reconnu mais il
+faut savoir soudoyer le petit personnel. J'ai des principes.
+
+Je suis entrée dans le club. C\'était un ancien hangar à fruits, le
+patron était parti avec la caisse, Gianni avait racheté le tout, cash,
+mis des néons à l\'entrée et des bouteilles aux murs. tous les gars de
+la région venaient se rincer la panse et l\'oeil après le turbin.
+
+Il était au bar Gianni, dans l\'ombre, dans son costume blanc à col
+large à pointe rose, il fumait une cigarette électronique, j\'étais là
+quand les flics avaient débarqué pour un un contrôle d\'hygiène, plus
+question de fumer ses Lucky Strike au comptoir.
+
+Il m\'a vu, il m\'a pris dans les bras, il puait la vanille froide et
+l'eau de cologne, un petit boulot bien payé ça demande des concessions.
+
+\- Dis donc je ne pensais pas te revoir.
+
+Il m\'a pincé la joue, oui j\'ai grossi et je t\'emmerde, Gérard, vas\'y
+toi bosser chez MacDo, rien que regarder les frites ça te transforme en
+double cheese.
+
+\- Et toi, toujours pochetron? Je lui ai tapé sur le ventre.
+
+\- Dis-moi, parlons boulot, sur scène, je t\'appellerai toujours Daisy?
+
+Il m\'a regardé de bas en haut, il avait fait fortune à Rungis avant de
+se reconvertir dans le striptease de province. La tâche de sang il l\'a
+tout de suite repéré. Il avait le chic pour m\'emmerder.
+
+Alors j\'ai dégraphé ma robe et je l'ai enlevée, là devant lui, devant
+le bar, devant les clients et je lui ai mis dans les bras et lui ai dit
+: \"Tu me gardes ça pendant que je suis là-haut sur scène\".
+
+Il s\'est figé, je me suis retourné et ai marché vers l\'entrée des
+artistes. Les mecs déjà ils sifflaient on aurait dit qu\'ils n\'avaient
+jamais vu un cul de leur vie.
+
+Quand mon spectacle a commencé, je suis arrivée sur scène, une danseuse
+m\'avait prêté un châle. J\'avais besoin de rien d\'autre, rien que mes
+talons et un peu de dignité. Je les ai allumé comme dans un film, ils
+étaient des chercheurs d'or édentés qui venaient dépenser leur derniers
+dollars dans un saloon, les clients, ils criaient ils hurlaient à la
+nuit.
+
+J\'ai tourné trois fois sur la scène et puis j\'ai jeté mon sous-tif au
+barman. Je suis descendue dans la salle, j\'ai commencé à me balader
+entre les tables, avec le peu de vêtements qui me restait. Cinq minutes
+après j\'étais à poil.
+
+Il y avait une table avec des gamins visiblement surexcités, bourrés,
+ils criaient, levaient les bras au ciel, ils m\'insultaient tout le
+temps. Alors je sui sallé vers eux, doucement. De l\'index j\'ai fait
+signe au plus bruyant de se rapprocher. Je l\'ai allongé par terre sur
+le béton froid du club. J\'ai fait le tour de son corps allongé. Puis je
+me suis arrêtée et j\'ai enfoncé mon talon dans sa main posée sur le
+sol. Ses copains disaient plus rien. Et j\'ai tourné, tourné, le gars
+osait pas crier.
+
+[]{#anchor-2}Chapitre 3 : Blue night
+
+Gianni m'avait bien engueulé, j'avais pas le droit de martyriser ses
+clients, c'étaient de bons citoyens, de bons fils de famille, ils
+avaient la vie devant eux et moi je leur marchait dessus.
+
+J\'ai appris 15 jours après pourquoi Gianni m\'avait gardé. Il voulait
+que je travaille en tant que serveuse dans son nouveau lieu de plaisir,
+le nouvel Eden Club qu\'il venait d\'ouvrir en ville. Un lieu où les
+gens se rencontreraient et échangeraient des verres et des bons mots,
+dans une ambiance libre et détendue. Une boite à partouze, ça j'ai
+compris, au premier étage dans les pièces il avait fait installer des
+canapés pourpres en pilou pilou, un jacuzzi et des chambres à grands
+lits. Il y avait aussi un bar aussi.
+
+Gianni m\'avait recasé. C\'était moins exposé, il disait, ça ne me
+dérangeait pas de ne pas danser, la paie était moins bonne mais j\'avais
+moins de pervers et plus de pouboires. Et je reprenais le même boulot
+qu\'auparavant au macdo, serveuse, c\'était une forme de rétablissement,
+un accomplissement, éviter la décadence, reprendre la marche en avant,
+je pouvais me remettre à rêver de mettre les bouts d\'ici.
+
+Fini le strip au bord de la Nationale, terminé les les routiers
+polonais, les manutentionnaires picards, le hall en taule c\'était du
+passé, trop froid l\'hiver, trop chaud l\'été, avec ses coups de vents à
+déshabiller une stripteaseuse.
+
+Tout ça c\'était du passé.
+
+Gianni avait racheté une batisse du XIIe siècle, à deux rues de la
+Mairie de Louvres. Il avait même réussi à faire financer une partie des
+travaux par la Région. Il était monté en gamme, par la force du poignet
+il était devenu un monsieur.
+
+Eden Club.
+
+Je suis derrière le bar. Il est l'heure de passser aux choses sérieuses.
+Le soir est tombé depuis une heure mais l'été donne une impression de
+vivre dans un sauna créé par notre propre sueur. Les esprits sont déjà
+bien allumés, les rires sont un peu trop forts, les lèvres humides mais
+il va falloir une petite étincelle pour que les couples commencent à se
+lâcher complètement. C'est souvent le rôle d'une des nanas amenées ici.
+
+Parfois c'est un petit pourboire de son micheton qui décoince, parfois
+même c'est Gérard qui offre sa tournée, ou glisse un biffeton pour
+demander à la fille de se déshabiller un peu et rendre la soirée plus
+directe. Il a bien compris son intérêt le gégé.
+
+La grande qui vient d'arriver me semble une bonne candidate.
+
+Elle s'est installée avec un gars dans le salon rouge . La fille est
+élancée, le mollet fin et la cheville de danseuse. Elle porte une robe
+charleston qui souligne son corps longiligne. Quand elle rit, son corps
+bascule vers l'arrière et, tenant les mains liées sur son genou droit,
+elle dévoile le dessous de sa cuisse à celui qui le fait rire et à toute
+la clientèle du club.
+
+Le gars avec lui, quel intérêt? Un petit gros je crois que je n'avais
+pas vu ici, ou alors je n'arrive pas à le reconnaître ils se ressemblent
+un peu tous les mecs. Pas de veste, chemise à manches courtes tâchée de
+vin, cravate dénouée au dessus de joues rouges. C'est lui qui conduit,
+qui régale, qui choisit, c'est lui qui paie.
+
+-   Il te plaît le gars de la table 10?
+
+Il s'ennuie ferme, le barman, il n'a pas grand chose à faire, non plus,
+il me charrie. Il croise les bras et caresse sa longue barbe d'une main
+calme.
+
+-   Qu'est ce que tu cherches en travaillant ici? Tu ne couches pas avec
+    les clents, tu ne fais plus de strip, tu ne te fais pas de
+    pourboires. Tu ne fais pas ça pour l'argent.
+-   Je me sens propre, je me sens bien. Il y a les pourboires aussi.
+-   Les clients n'ont pas une thune pour nous, ils sont comme nous, ils
+    paient tout, leur femme, le pavillon qui va avec, la voiture pour
+    fuir le pavillon, le boulot pour payer la voiture, à la fin du mois,
+    ils croient que l'État leur a tout piqué alors qu'ils se sont mis le
+    garrot d'eux-mêmes. Alors ils viennent se payer un peu de liberté,
+    comme des petits soldats sur le port, ils claquent tout parce qu'à
+    la fin ils vont crever, du typhus ou du chômage. Alors si tu veux du
+    blé, il faut pas les lâcher. Sur leurs genoux qu'il faut te
+    trimballer. Ils sont ici pour oublier, demain ils ne sauront jamais
+    l'argent qu'ils t'ont laissé. Ça gènera qui? Leur femme, leurs
+    gosses, ils vont se faire engueuler, mais pas plus que d'habitude
+    alors en attendant ils se sont éclaté la quille.
+
+J'étais contente d'être là derrière le bar, j'étais protégée. Je faisais
+la sécurité. Les plus allumés je les mettais dehors. Il y en avait pas
+mal, des imbéciles, j'aurais même dit que la connerie c'était le fond de
+commerce de l'Eden Club. Ils vendaient pas que des bouteilles de
+mousseux au prix du champagne, des kirs royal au perrier, ou l'accès à
+une salle à partouze nettoyée tous les soirs. Ils vendaient une vie en
+kit, un jeu de rôle où tout le monde est à poil. Quand ils se désapaient
+ils devenaient des gnomes des voleurs, avec une quête, devenir le
+hardeur primal.
+
+Je les regardais comme ça de temps en temps sur les écrans derrière le
+comptoir. On avait des caméras dans toutes les salles de baise, un peu
+pour surveiller, un peu pour se marrer, on matait ça en faisant la
+plonge. Parfois ça commençait à mal tourner, je voyais ça je terminais
+d'essuyer mes verres et puis j'allais leur expliquer les règles. On ne
+tape pas. On n'encule pas, sauf le mard.
+
+On avait établi un code avec les habituées, si elles se grattaient le
+nez d'une certaine façon, j'intervenais.
+
+Videuse dans une boite à partouze.
+
+Gianni m'avait payé un abonnement à la salle de sport. Je pouvais me
+muscler pendant la journée, apprendre les arts martiaux, la boxe. Et le
+soir je me posais sur ma chaise haute collée bar, en minijupe et
+décolleté, bien maquillée, l'oeil bien noir et je devais siroter que de
+l'eau gazeuse "avec une paille".
+
+Pendant ce temps le barman arrêtait pas de parler.
+
+-   Tu pourrais te trouver un bon gars ici. j'ai entendu dire qu'au
+    village à côté ils vont engager des informaticiens pour travailler
+    sur le site de la mairie, peut être qu'il y aura quelque chose pour
+    toi?
+-   Je suis allé à l'école avec eux, je les connias, ils sont tous
+    insipides. Ils ont pas bougé de la région. La moitié sont jamais
+    allé à Paris ou à Lille. Même Amiens.
+-   Je les comprends moi, il me fait en plongeant les mains dans
+    l'évier, je suis bien là, j'ai mes copains, mes voisins, mes plans
+    pour avoir de la beuh... Pour moi on habite là où on a son dealer.
+    Celui qui connait les meilleurs plans, qui peut vous trouver les
+    plus belles têtes de weed dans les cités. Pas le petit gars qui te
+    trouve une barrette qui te fait mal à la tête, non, le vrai
+    fournisseur de quartier, celui qui va te fournir en qualité mais qui
+    saura ne pas le griller auprès des flics, faut rester discret sinon
+    tout le monde se ramène\...
+
+Je ne l'écoute plus trop. Je regarde le couple, le mec a essayé de poser
+sa main sur le genou de la fille en lui disant un mot à l'oreille mais
+elle l'a repoussée d'un geste brusque. Le petit gars a le nez en
+trompette qui commence à fumer. Ils ne rigolent plus tous les deux. Elle
+roule des yeux, sa maxillaire bouge de bas en haut, elle doit parler,
+d'ici je n'entends rien. Elle fixe son gars droit dans les yeux, elle
+garde sa la main levée et le bras replié prêt à se défendre de nouveau.
+Le gars réessaie. Il pose sa main plus haut, sur sa cuisse, elle le
+repousse, il recommence, en lui parlant il avance sa main vers le haut
+de sa robe, elle saisit son poignet et essaie de le retirer de nouveau
+mais il a planté ses doigts dans la cuisse. Je pose mon verre et saute
+de ma chaise. Pas le moment de faire scandale, pour lui ni pour moi. Je
+tire ma jupe de cuir et trottine vers eux. Enfin un peu d'action.
+
+-   Monsieur vous embête?
+-   Pas du tout, il répond, discussion d'amoureux, vous devez en voir
+    souvent par ici. Tout va bien.
+-   Et vous mademoiselle?
+-   Comment ça "Et vous mademoiselle?", me fait le gars surpris.
+
+Je ne le regarde pas, j'observe la fille qui tord son visage vers moi.
+Elle a les yeux grands ouverts et vagues, comme si elle allait pleurer,
+elle garde sa main toute fine sur le poignet gras du type, ou plutôt sur
+sa montre.
+
+-   Qu'est-ce qui se passe? J'entends derrière moi, en même temps que je
+    sens une main se poser sur mon épaule. Daisy?
+
+C'est la voix de Gianni, nasillarde. Pour une fois qu'il bosse lui il
+vient interrompre mon boulot.
+
+-   Est-ce que vous passez une bonne soirée? Il répète.
+
+La nana ne peut pas se gratter le nez pour faire le signe de détresse.
+Le client lui assure que tout va bien. "On va juste vus prendre une
+bouteille de champagne. Et du bon!"
+
+Le voilà parti en négociation avec le tenancier de l'Eden Club. "On a un
+Dom Pérignon." "Dîtes donc ça doit être cher ça.", lui fait le gars.
+"C'est tout ce qui nous reste, je vous mets le Dom Perignon, vous allez
+aimer."
+
+"Dans le cul", je grince entre mes dents.
+
+"Daisy, me fait Gianni en se tournant vers moi, tu veux prendre un verre
+avec nos invités? Ou pas cette fois, là tu vas amener la commande de
+monsieur. "
+
+Il n'avait pas laché mon épaule. Je sens qu'il me guide pour que je
+retourne au bar. Je fais un demi tour. "Et une bouteille bien fraîche!
+Il fait chaud chez vous à l'étage! Vous me l'amenez dans la chambre des
+délices." J'entends la voix du gars qui me lance encore des ordres.
+
+Gianni lui répond: "Bien sûr! Allez va chercher la bouteille de
+monsieur. Quelle potiche celle là!" Je sens une main qui vient se mouler
+sur mes fesses et me tater l'arrière. J'entends deux rires gras, gros,
+partir. Là pendant une seconde, peut être une heure, j'ai vu toute ma
+vie défiler devant mes yeux, j'avais ma robe au pressing il faudrait la
+récupérer, j'avais un billet d'avion à me payer, j'avais tout les films
+qui m'attendaient, j'ai senti que tout ce que je désirais ne pesait rien
+dans la main du maquignon, que j'étais aujourd'hui son jouet mais je
+voulais, je devais continuer pour ne pas passer à côté, je voulais
+accomplir quelque chose de grand, que personne n'avait jamais fait. Mes
+rêves ils étaient à moi, c'était à moi de les accomplir. Sur mes rêves
+je ne vais plus rien lâcher.
+
+C\'était le 14 juillet Gianni avait organisé un bal costumé. C\'est tout
+dire que le gratin de la ville s\'est radiné, en petits habits loués. La
+fête battait son plein, dans une demi-heure on allait tirer le feu
+d\'artifice. Les gens s\'égayaient dans le jardin d\'autres dans les
+étages de la batisse.
+
+J\'étais en train de donner un coup de chiffon sur le comptoir tout
+neuf, au rez-de-chaussée, qui donnait sur le dehors. j\'ai vu trois
+personnes s\'asseoir à une table dans le jardin. Ils étaient bien
+habillés. Le plus grand il portait un costume de clown blanc. Je me suis
+approchée, le clown a tourné la tête vers moi et m\'a fixé.
+
+Derrière ses yeux maquillés et sa peau blanche de poudre j\'ai senti
+tout mon passé qui me regardait.
+
+[]{#anchor-3}
+
+[]{#anchor-4}Chapitre 4 : Four lane road
+
+\-- Salut, Charlotte.
+
+Ses yeux ne me lâchaient pas. Une goutte de sueur a commencé à couler de
+son front immense et blanchi par la maquillage, s\'est arrêtée sur sa
+tempe et doucement, imperceptiblement, a grossi en son milieu, comme si
+cette goutte avait toujours été là. Quand elle a dépassée l\'arête de
+son visage et a basculée le long de sa joue, soudain je l\'ai reconnu.
+Les souvenirs sont apparus.
+
+Pierrot.
+
+Il venait chez moi, on s\'enfermait dans ma chambre, on jouait, les
+voisins des pavillons autour de nous ils regardaient, par les rideaux,
+ils avaient des soupçons, un grand de 16 ans qui vient chez une petite,
+j\'avais 12 ans, mes parents étaient à l'ouest, mon père était parti
+quand il avait appris que ma mère était enceinte, il l'avait castagné
+puis il était retourné par chez lui, pas de chance il avait visé la tête
+pas le ventre, j'étais née un peu plus tard. Ma mère le plus souvent,
+elle était pas là, elle trainait en bas de la ville au bistro en face du
+rer à s\'accrocher au comptoir, elle ne remontait que pour gueuler pour
+vomir ou pour s'envoyer un client du bar qui lui avait fait assez . Un
+jour, les voisins sont venus sonner à la porte, je mettais la musique
+très fort, leur chien aboyait depuis le début de l\'après-midi. Je suis
+allé ouvrir, peut être que j\'étais en petite culotte. Elle a essayé de
+m'engueuler. Le lendemain le chien n'aboyait plus. Ils ne sont jamais
+revenus.
+
+Je grandissait. Pierrot m\'a emmené avec lui, quand il sortait, au
+centre commercial. On retrouvait ses copains à lui, on regardait les
+gens passer, c\'était lassant à force, on a commencé à se demander ce
+qu'on pourrait faire d'eux, alors on les a dépouillé. Ils m\'envoyaient
+en premier, j\'avais une petite histoire à raconter. J\'étais la petite
+gosse toute seule, perdue, je ne savais pas où était ma famille, très
+vite les gens me proposaient de chercher en voiture, on faisait le tour
+du parking et moi je les guidais. Quand on arrivait dans un coin reculé,
+je leur montrait Pierrot en leur criant:\" Là Là c\'est mon frère!\" Ils
+s\'arrêtaient. J\'ouvrais la porte de la voiture et là notre bande elle
+leur tombait dessus. On en a dépouillé des voitures de leurs courses,
+c\'était rapide, je piquais les sacs à main, les sacs à dos, tout ce qui
+trainaît, pendant que la bande se jetait sur les courses dans le coffre.
+
+Un jour la sécurité du centre commercial est intervenue, on a réussi à
+leur échapper. Notre plan était grillé. Je suis rentrée à la maison,
+j\'ai sorti de sous mon lit les sacs que j\'avais gardé. C\'est là où je
+me suis rendu compte combien les gens avaient une vie. J\'ai ouvert les
+portefeuilles, j\'ai vu les photos, j\'ai vu que les gens avaient deux
+trois portables pas cher, invendables, mais avec plein de sms dedans,
+des tromperies à n\'en pas finir, des histoires de cul surtout, avec des
+photos\... Ah j\'en ai vu des images quand j\'étais petite\...
+
+Ça m'a donné une idée, j'en ai parlé à Pierrot. On a tracé en ville. On
+a commencé à retrouver tous ces lascars qui trompaient leur femme et on
+les a fait gentiment chanter. Toujours moi, au front, j\'étais une
+guerrière, une commando. Un ange, une vraie enfant. J\'avais une petite
+robe à volant, un peu trop petite, je commençais à avoir des formes. Ça
+les amadouait, les mecs, au début, puis quand ils comprenaient qu\'on
+avait des images sur eux, ils devenaient blancs, liquides, ils
+cherchaient à disparaître, alors on les faisait cracher au bassinet, en
+échange qu\'on leur redonne leur portable, de toutes façons on avait
+déjà tout copié. A ceux qui ne voulaient pas, Pierrot intervenait, un
+peu. Ça a duré longtemps cette petite combine. On a dû racketter la
+moitié d\'Orry-la-Ville.
+
+Pierrot est maintenant devant moi, dans ses grands habits blancs de
+clown triste, ça faisait longtemps, il avait une cigarette plantée entre
+ses lèvres d\'un rouge écarlate.
+
+Il l\'a prise en son milieu et l\'a jetée à terre, puis l\'a écrasé sous
+une semelle démesurée.
+
+Il alternait les gestes lents et les gestes violents, en silence, puis
+me regardait d\'un coup.
+
+-   Alors\... Tu n\'es pas contente de me revoir?
+
+-   La dernière fois que je t\'ai croisé tu portais des menottes. A ce
+    que je vois, tu as toujours le goût du déguisement.
+
+Son front blanc plissait légérement, il avait fait chaud à en crever, je
+n\'arrivais pas à deviner si les perles de sueur étaient provoquées par
+la canicule.
+
+Il a fait un petit geste en direction des deux gars qui
+l\'accompagnaient. C\'étaient deux gars habillés en marins du Kursk,
+enfin une tragédie dans le sens.
+
+-   Je te présente Pipo et Mario, mes nouveaux amis. Je fais dans la
+    comédie en ce moment, les deux lascars ne parlent qu\'urkrainien, on
+    tourne un film muet.
+
+-   Vous êtes venus pour une partie à trois? que je lui ai fait. Les
+    soirées gay c\'est le jeudi. Mais peut être que vous pouvez prendre
+    une chambre.
+
+Le clown il a commencé à crier, en même temps j\'ai entendu les premiers
+pétards de feu d\'artifice exploser au loin dans la rue.
+
+-   J\'ai passé trois ans à l\'ombre et tu sais que je ne t\'ai pas
+    dénoncé. Aujourd\'hui je viens pour te faire payer ta dette.
+
+J\'ai rien dit j\'ai regardé ses yeux.
+
+-   Tu sais j\'ai gardé les films de nos exploits. Tu te rappelles?
+    Quand on faisait chanter les gars dans l\'immobilier à Ory-la-Ville?
+    Tu ne t\'ai jamais demandé pourquoi les flics n\'avaient pas
+    ressorti les films, pendant le procès? Tu te souviens? Les films où
+    on te voit draguer, allumer complètement et les attirer chez toi, et
+    les films dans la cave\... Je les ai encore, ma poulette. Tu me
+    regardais pourtant à l\'époque quand je te filmais. On savait se
+    parler à l\'époque, on se comprenait.
+
+Je me souvenais maintenant, la cave, les vidéos, pour faire chanter les
+gus, ils crachaient tous au bassinet, ça a été le boulot le plus facile
+de ma vie. Jusqu\'à cet accident, avec le gars un peu plus petit qui
+voulait pas payer. Il s\'est énervé, je me suis énervé, Pierrot derrière
+la caméra, tu parles, il a tout filmé. Le gars a jamais porté plainte.
+Se faire dérouiller par une gonzesse, il avait sa vie à assurer
+derrière.
+
+-   Et tu veux quoi? Je lui ai fait.
+
+-   J\'ai un petit job à te proposer.
+
+-   Je ne fais plus dans le boulot d'été, je lui ai envoyé. C\'est fini
+    c\'est du passé maintenant j\'ai une nouvelle vie. Je suis salariée.
+
+Rien que de lui envoyer ça, de lui raconter un telle énormité, ça m\'a
+tout retourné, même moi je ne me suis pas cru, rien du tout, je me suis
+dit je suis quoi? Une rouquine serveuse dans un club échangiste, une
+nana qui a besoin d'argent. Cueille le jour.
+
+Pierrot a continué.
+
+-   Tu vas voir c\'est qu\'un petit coup tu vas adorer, on va aller
+    taquiner le bourgeois,. On a repéré une famille ils sont plein aux
+    as, je sais pas ce qu\'ils foutent par ici. Ils ont un fils de 8
+    ans. On va le kidnapper.
+
+Moi qui révait de faire carrière dans le cinéma.
+
+J\'imaginais déjà les parents des kidnappés, qui se rongeraient le sang,
+la famille dévastée, accablée. le père qui attend un coup de fil dans le
+jardin, la mère elle regarde par la fenêtre, ils attendent des
+instructions.
+
+[]{#anchor-5}Chapitre 5 : Eleven AM
+
+Pierrot s\'est occupé de louer une chambre à Creil, pas trop loin de
+Louvres et direct en RER. Il a voulu être discret. Il est passé par Le
+Bon Coin.
+
+J\'attends ma proie. Ça a été facile de le faire tomber dans mes filets.
+C\'est l\'été. Le petit Sébastien va à la piscine de Louvres presque
+tous les jours. Je me suis acheté un petit bikini à fleurs rouges et
+j\'ai traîné mes kilos en trop du côté du grand bassin. On a beau dire,
+les athlètes ça aime la chair fraiche. Au bout de deux heures passés
+ensemble au bord de l\'eau, Sébastien m\'a proposé de prendre un café.
+Il se sentait fort. Il m\'a tout raconté, sa vie de stagiaire dans le
+garage de son père. Son BTS. Ses futurs vacances à Biarritz avec ses
+copains. Je n\'en revenais pas, j\'étais sa proie mais il n\'y voyait
+que du feu, il se sentait un homme, il se sentait chasseur alors que
+c\'est lui que j\'étais en train de chasser.
+
+Je le trouvais beaucoup moins bourgeois et thuné que ce que m\'avait
+raconté Pierrot, encore un de ces plans bien boiteux.
+
+On est dimanche, déjà. Rendez-vous donné à 11h, Creil, l\'adresse il
+avait tout noté dans son smartphone Sébastien. J\'étais arrivée la
+veille, j\'avais passé la nuit dans l\'appartement loué, à préparer mon
+plan et à révasser sous les toits dans la chaleur de l\'été.
+
+Il est déjà 10h. Je me suis réveillée difficilement j\'étais en prise à
+des rêves agités. Je suis allée directement sous la douche en espérant
+m\'éclaircir les idées, puis sans prendre le temps de me sécher, je me
+suis assise dans le grand fauteuil de velours qui traînait devant la
+fenêtre, j\'ai enfilé mes chaussures à talons et j\'ai marché comme une
+dame devant le grand miroir dans la chambre meublée. Je me regardais,
+nue, je m\'imaginais avec une robe à rayures, sans manche, très chic,
+d\'immenses lunettes noires sur le nez pour passer inaperçue, j\'étais
+sur le tarmac d\'un aéroport, je marchais d\'un pas pressé vers mon jet
+privé, celui que m\'aurait donné mon ancien amant millliardaire, devenu
+moine au Tibet. Devant le capitaine de l\'avion et tout mon équipage qui
+me faisait une haie d\'honneur et m\'applaudissait, Je faisais de grands
+pas conquérants.
+
+Entre deux va-et-viens devant la glace, j\'ai jeté un oeil par la
+fenêtre et j\'ai vu Sébastien traverser la rue, il a levé la tete et
+m\'a aperçu, j\'étais nue comme au premier jour d\'une nouvelle vie.
+
+Je l\'ai suivi du regard et j'ai jeté ma main en l'air, je lui ai lancé
+un petit signe, il s\'est s\'engouffré dans l\'imeuble. J\'ai pris le
+temps de me passer un peu de rouge à lèvres, criard, flamboyant, gras et
+qui sentait l\'ortie.
+
+Lorsqu\'il est entré dans l\'appartement, j\'ai passé mon bras nu
+derrière son cou et je l\'ai embrassé à plein bouche, sans lui laisser
+le temps de comprendre ce qui lui arrivait,. Je respirais avec beaucoup
+de bruit, je collais mes lèvres contre les siennes, il ne pouvait pas
+parler, pas réagir, c\'est moi qui commandait maintenant.
+
+\-- Viens près de moi, je lui ai mumuré. Laisses-moi faire.
+
+Je l\'ai poussé sur le lit et ai grimpé à califourchon sur lui. Entre
+mes jambes, contre mon sexe, je sentais son ceinturon de métal où était
+marqué Gucci, il a essayé de se relever sur ses coudes j\'ai passé mes
+mains derrière son corps et j\'ai tiré sur son tee-shirt qui collait à
+son corps humide et qui puait la sueur. J\'ai posé mes mains sur ses
+épaules et je l\'ai poussé contre le lit, je l\'ai embrassé,
+furieusement, crûment, comme il révait qu\'on l\'embrasse, je lui ai
+mordu les lèvres et j\'ai senti le goût du sang dans ma bouche, une
+sensation âpre et rugueuse au fond de ma langue. Je me suis redressée,
+je respirais la bouche ouverte, avec bruit, comme une femme excitée.
+
+Je me suis reculée. D\'une main j\'ai défait sa ceinture. J\'ai ouvert
+son pantalon. J\'ai saisi les hanches de son pantalon à pleines mains et
+j\'ai tiré dessus jusqu\'à ce qu\'il arrive à la hauteur des genoux de
+Sébastien.
+
+\-- Tu es à moi, tu es magnifique, maintenant, je lui ai fait.
+
+Je me suis réinstallé sur Sébastien, son corps était tendu sous moi, ses
+jambes entravées, son sexe dur comme du bois sec, son torse lisse trempé
+de sueur. J\'ai mis ma main contre sa glote et l'ai repoussé contre
+l\'oreiller sans qu\'il résiste.
+
+Je l\'ai laissé me regarder en train de me tortiller, passer les mains
+dans les cheveux, je lui ai dit \"Regardes moi\", il était incapable de
+bouger, hypnotisé, comme un gamin devant sa télé, mais les monstres,
+tous les monstres sortent de l\'écran pour venir le tourmenter et
+l\'enfant ne peut pas bouger. Je me suis penché sur lui, j\'ai senti mes
+seins se coller contre sa bouche, j\'ai tendu mes bras et j'ai j\'ai
+frotté mes aisselles contre son nez, pendant que je soupirais comme il
+n\'aurait jamais rêvé, j\'ai attrapé le bout du drap qui trainait
+derrière sa tête sur le lit défait. Son sourire niais.
+
+-   J'ai une idée, Sébastien.
+
+Devant lui j\'ai déchiré le drap en une lanière, avec de grands gestes.
+J\'ai passé les bouts du drap contre son torse.
+
+-   Tu sens ce qui va t\'arriver?
+-   Oui. Non. Il m\'a fait.
+
+Avec la lanière, j\'ai commencé à faire un noeud à son poignet. Il
+s\'est mis à rire nerveusement, sa machoire pendait sans qu\'il puisse
+articuler autre chose que des sons, je fixais son regard tout en jouant
+avec chaque extrémité de ses nerfs, je passais en rythme les bouts de
+lanières froides au dessus de son visage et sur son corps pour
+t\'exciter doucement.
+
+Je me suis penchée à nouveau au dessus de lui et pendant que je
+remplissais sa bouche de mes seins, j\'ai passé la lanière dans les
+montants du lit à baldaquin. J\'ai tiré doucement sur la lanière, son
+bras droit est passé au dessus de sa tete. Je tenais fermement le bout
+de tissu de ma main gauche, j\'ai descendu mon visage vers son aisselle
+et, en laissant traîner mes cheveux contre son bras, j\'ai planté mes
+ongles profondément dans son flanc et les ai laissé lentement
+s\'enfoncer. Sébastien s\'est tortillé en laissant échapper un cri
+indistinct. J\'ai saisi son poignet gauche et me suis affalé contre son
+bras pour qu\'il passe lui aussi au dessus de la tête de Sébastien.
+J\'ai saisi son poignet gauche entre le bout de mes doigts et caressant
+délicatement avec le tissu les parties les plus fines de sa peau, je
+l\'ai entouré avec la lanière. Une fois le noeud fait, j\'ai serré d\'un
+coup, violemment. Sébastien ne résistait pas, il s\'offrait à mes liens.
+J\'ai serré le plus fort que j\'ai pu.
+
+Voilà Sébastien maintenant solidement attaché au lit. J\'ai planté mes
+dents dans ses lèvres violemment une dernière fois je me suis redressée
+et j\'ai fourré le reste du drap dans sa bouche pour qu\'il ne puisse
+pas hurler.
+
+Il a commencé à se débattre en dessous de moi. Il était trop jeune, il
+ne savait plus si c\'était un jeu érotique mais j\'ai commencé à lire de
+la crainte dans ses yeux. Il a essayé de me faire basculer. J\'ai pris
+ses cheveux de la main gauche, je l\'ai tiré en arrière, son cou se
+cassait sous mes gestes violents et de la main droite je l\'ai frappé,
+main ouverte, une fois, deux fois, puis j\'ai fermé ma main et j\'ai
+visé l\'oeil, sa paumette a éclaté, j\'ai senti du sang contre mes
+poings, j\'ai enchaîné, droite, gauche, mes mains me faisaient mal à
+frapper, sa tête volait, à droite à gauche. J\'ai saisi le ceinturon
+près de moi je l\'ai mis dans ma main pour lui frapper au visage, à la
+tempe, à l\'oeil.
+
+Son corps était inerte maintenant. Je me suis relevée et je me suis
+dirigé vers la salle de bains, je devais reprendre une douche, revivre
+ce moment unique, cette joie d'avoir dompté la bête.
+
+Après la douche, mes cheveux étaient de nouveau mouillés mais tant pis.
+J\'ai remis mes talons et j\'ai traversé la chambre, nue comme tout à
+l\'heure, je suis allée à la fenêtre et j\'ai téléphoné à Pierrot, qui
+attendait dans le garage en sous-sol, pour qu\'il vienne récupérer
+Sébastien. Je me suis regardée devant la glace, je me sentais reposée.
+
+J'avais rendez-vous avec Jacky à midi sur la place de la République dans
+le café en face du Speedy. Jacky devait m'inviter.
+
+Il ne me restait plus beaucoup de temps. J'ai ouvert la porte pour que
+Pierrot puisse monter récupérer le paquet ficelé et j'ai commencé à
+chercher mes affaires pour me préparer.
+
+Pierrot est entré. D'abord il m'a vu nue sur mes talons, c'était la
+première fois qu'il me voyait à poil depuis sa sortie de prison. La
+première fois depuis mes 12 ans. Je me tenais droite la culotte à la
+main devant la fenêtre, je sentais le soleil réchauffer mes reins encore
+mouillés par la douche, je sentais chaque goutte qui descendait
+doucement et disparaissait. Je me suis dit que j'allais rester, devant
+lui, juste une apparition lumineuse, un halo de femme dans la lumière de
+l'été. Pardonnez-moi ces moments de poésie, mais je savais bien ce que
+je faisais, j'étais exacte sous la bonne lumière je savais ce qu'il
+voyait de moi un corps nu mais dont il ne pouvait qu'imaginer les
+détails le corps d'une sainte venue du ciel.
+
+Pierrot avait une cagoule, pour pas que Sébastien ne puisse voir son
+visage. C'était mon idée, je ne voulais pas l'exposer, on était allé à
+Décathlon dans les rayons d'hiver, il n'y avait pas de soldes, mais on a
+trouvé ce qu'on voulait, elles étaient en laine et là Pierrot il suait
+il puait on aurait dit une infection. Moi qui me sentait toute propre.
+
+-   Je t'ai préparé le petit lot.
+
+C'était pas ce qu'on avait prévu, il a fait. Il a commencé à gueule.
+J'avais abimé Sébastien, je lui avait cassé le nez, il vaudrait beaucoup
+moins cher maintenant, et si les parents l'apprenaient ils allaient
+s'exciter encore plus.
+
+Je me suis approchée, lentement, chaloupée, je voyais mon ombre qui
+fondait sur lui et lui grimpait sur le corps. Il a arrêté de parler avec
+ses petits arguments, il a senti ma fureur déjà revenir, je crois qu'li
+a bien compris qu'il fallait pas me chercher à me gâcher le moment.
+
+-   Tu as fini ton numéro? Tu devrais me remercier. C'est moi qui ai
+    fait tout le boulot. Alors tu vas fait ta part maintenant. Tant
+    qu'il est pas réveillé, tu vas l'amener dans ta voiture, comme
+    prévu. Ensuite tu remontes. Tu imagines que la propriétaire du
+    meublé vienne à trouver des traces de sang? Tu ne veux pas que les
+    flics remontent jusqu'à toi? Tu es libéré sur parole. Tu reviens et
+    tu vas tout nettoyer. Moi je crains rien, personne ne m'a vu monter,
+    toi la location est à ton nom, alors je te le conseille, fais au
+    mieux, avant de disparaitre. On se retrouve plus tard.
+
+Pour une fois qu'un plan se déroulait sans accroc, il allait quand même
+pas me pourrir la vie.
+
+J'ai mis un jean, un haut dégagé dns le dos avec des bretelles, un peu
+de parfum, un chapeau à large bords, 8e99 chez Carrefour à Chantilly, le
+chapeau, ce truc je l'avais piqué à Julia Roberts dans Ocean Eleven. Je
+suis passée par le garage pour sortir discrètement de l'immeuble. Il n'y
+avait personne dans la rue, les gens cuisaient dans leurs appartements
+en attendant le chômage. J'ai marché au soleil jusqu'à la place de la
+République.
+
+Je n'étais pas en retard mais j'ai aperçu Jacky,déjà assis en terrasse,
+il a lancé la main en l'air. Il va falloir que je fasse bonne figure.
+J'espère que je n'ai pas les joues trop rouges.
+
+Jacky a commandé sa bière. J'en prends une aussi et je demande un petit
+poisson blanc. J'ai goûté celui de chez Auchan il est délicieux alors
+autant prendre la même chose ici. Je sais ce qui se passe en cuisine ils
+vont juste ouvrir un sachet alors il faut s'adapter, il faut se
+préparer. J'aurais bien pris un tartare mais pas après la séance de tout
+à l'heure, une prochaine fois peut-être.
+
+Jacky commence sa roucoulade, il voudrait que je vienne habiter chez
+lui, il n'est plus tout jeune, il le dit, il veut donner un nouveau
+départ à sa vie, ouvrir son propre Speedy. Il paraît qu'il y a une
+succurcale à vendre à Creil plus au nord sur la ligne de rer. Il va
+aller voir le banquier la semaine prochaine. Il m'imagine bien en
+secrétaire. Il a raison, le Jacky. Je m'habillerais en robe léopard avec
+des décolletés plongeants, les clients ils vont faire la queue pour
+réparer leur pot d'échappement. Son business plan ça se tient. J'en ai
+connu une danseuse comme ça il y a trois ans. Elle s'est mise à la colle
+avec un vendeur de lunettes qu'elle avait rencontré à l'Eden. Le gars
+lui a acheté un petit tailleur bordeaux, des collants et l'a poussé dans
+un magasin. Atoll. L'opticien, au centre commercial de
+Survilliers-Fosses. Un an plus tard elle était enceinte, elle avait un
+crédit sur le dos et son futur ex-mari allait tous les midis partager du
+boudin purée avec la cantinière de chez Leclerc. Elle a beaucoup pleuré
+s'est fait avorter et maintenant elle vend toujours des lunettes, elle
+ne rentre plus dans son tailleur mais elle a fait sauter un bouton de
+son chemisier pour faire venir les client. Il faut dire que la ville a
+perdu pas mal d'emplois, il y a bien quelques nouveaux venus à
+Survilliers-Fosses, des petits cadres qui n'ont pas les moyens de
+s'installer à Senlis. mais eux ils préfèrent faire leurs courses un peu
+plus loin que le Leclerc, il poussent jusqu'au Carrefour, c'est plus
+loin mais c'est plus chic, il y a un choix de marques.
+
+Elle aurait bien rénové sa boutique maintenant qu'elle est quasiment
+seule elle n'a plus que ça à foutre que perdre sa vie à s'endetter.
+C'est un avenir il sait se vendre mon Jacky. Je fais des dessins dans la
+ratatouille, avec la sauce blanche du poisson pané. C'est troublant.
+Décidément ils essaient tous de me gâcher la joie depuis tout à l'heure
+à m'expliquer la vie. Mais j'ai décidé de garder ma bonne humeur, de ma
+main libre je lui pince la cuisse de joie.
+
+Il doit m'emmener travailler tout à l'heure. Mais avant on va chercher
+un pressing pou rma robe. C'est le comptable qui m'invite. merci pour ce
+moment.
+
+Après le café et la cigarette de Jacky on se lève et on se dirige vers
+le centre ville.
+
+"Ah j'aurais aimé te présenter à mon patron", il me fait le Jacky d'un
+coup romantique. " Tu devrais voir sa maison, il a une piscine, des
+chaises longues, un garage avec sa moto\..."
+
+Un barbecue en briques et des enfants qui jouent au jeu vidéo... Je me
+demande d'où je connais aussi bien le monde maintenant. Plus rien ne me
+surprend.
+
+En attendant, on va porter ma robe au pressing, j'ai demandé à Jacky de
+m'avancer les frais. Dans ma tête et dans un mois, je serai loin, Jacky
+pourra toujours m'envoyer la facture à Holywood. Miss Daisy Benjamin,
+first caravane, near Tom Hanks, à gauche.
+
+Dans le pressing devant la petite stagiaire je roule une galoche au mec
+qui vient de payer, je vérifie, oui elle l'a bien remarquée mon manège
+la petite stagiaire. Je lui fais un clin d'oeil. J'espère l'avoir
+dégoûté des hommes pour sa vie.
+
+Jacky m'a amené au RER pour Louvres puis il est retourné travailler, il
+était déjà en retard. J'en ai profité pour regarder mon téléphone. Pas
+de nouvelle de mon petit repris de justice, mon petit employé à moi. Il
+doit être en train de nettoyer l'appartement de peur de retourner se
+faire emplumer le cocotier à la Santé. Je fais dans le social. Il a
+intérêt à marcher droit.
+
+A l'Eden Club, ils sont en train de descendre les chaises. L'après-midi
+on ouvre comme si on était un petit café, lounge, sympa, entre
+collègues, un petit verre avant de reprendre le boulot à la mairie ou de
+retourner à la maison, si on est assez discret on peut monter dans la
+chambre 101, au premier étage, elle est toujours prête la première,
+toujours libre, alors que les autre chambres sont nettoyées un peu plus
+tard dans l'après-midi. Les gens ont des urgences qui leur courre dans
+le fond du pantalon, il faut qu'ils se déchargent les pulsions, vite
+fait, n'importe où, n'importe quand, même ici et maintenant, c'est tout
+dire. Je regarde la vie avec détachement, je suis une vieille sage, je
+suis là depuis l'ouverture, je vais me raser la tête et vais servir les
+clients en lévitation. Je pourrais faire ça.
+
+Pas de message de Pierrot et de ses deux colombins. Rien que de penser à
+ces trois gaillards en train de nettoyer à fond, changer les draps,
+aller chercher de la javel, de la soude, une brosse à dent, frotter avec
+du citron des petites traces de sang sur le matelas... ça valait le
+coup.
+
+Je me suis assise dans le jardin et j'ai commencé à discuter avec le
+jardinier en reluquant les premiers clients arriver.
+
+\(1\)
+
+\(2\)
+
+\(3\)
+
+Mon rêve je suis en train de le construire. Une fois que je serai riche,
+que ma part de la rançon me sera versée, je partirai.
+
+[]{#anchor-6}Chapitre 6 : Hotel Lobby
+
+Battistini était un personnage qui avait marqué la région. Au sortir de
+la guerre, il avait douze ans et il était orphelin. Quand les autres
+enfants demandaient des chewing gums ou des bas aux soldats américains,
+Battistini devait trouver à manger et il ne pouvait compter que sur
+lui-même pour survivre. Il sut se rendre indispensable dans les
+campements de américains, en apportant de l'eau et du mauvais vin, en
+échange, les soldats lui donnaient du chocolat, qu'il revendait au
+marché de Saint-Witz. En même temps qu'il apprenait la base du commerce,
+il se prit de passion pour la mécanique des camions. Il passa des heures
+le nez dans les moteurs avec les soldats chargés des réparations, il
+voulait comprendre comment on pouvait à partir de rien faire marcher
+quelque chose. Et pas besoin de parler la langue. Il avat appris comment
+demander une clé à pipe ou un palan à main, même s'il n'avait pas
+comment écrire les mots, ni en anglais, ni en français, qu'importe, il
+connaissait la mécanique.
+
+Les américains partis, il trouva de l'embauche dans un garage à Vémars
+et il continua le samedi à faire du troc dans les marchés avec ce qui
+lui restait de marchandise gardée de l'après guerre. A 16 ans, il
+racheta à une fermière esseulée prise de pitié, pour quelques francs,
+une vieille camionnette en panne depuis 1940. Il la répara avec un bas,
+et à compter de ce jour il l'utilisa pour vendre ses services partout où
+pouvait l'emmener son brave véhicule.
+
+On savait dans le coin qu'il serait toujours là, avec sa bande, pour
+déplacer un lit.
+
+Bref, 70 ans plus tard, il était le personnage le plus riche du
+département.
+
+Ou plutôt, il était le plus influent, il avait passé une première partie
+de sa vie à créer des réseaux, en particulier chez les chatelains, les
+notables, puis les industriels. Dans les années 60 il avait utilisé ses
+réseaux principalement politiques pour faire passer les autoroutes pas
+trop loin de ses entreprises, il avait creé plusieurs sociétés de
+transport, puis de revente de matériel divers.
+
+Quand la demande de rançon était arrivée, les parents de Sébastien
+étaient venus le voir. Il était le seul à pouvoir les aider à rassembler
+l'argent. Sébastien avait été dans la même école que l'une des petites
+nièces de M. Battistini. Surtout M. Battistini ne supportait pas qu'on
+touchât au cheveu d'un enfant de la région. Peut-être aussi qu'il était
+le père non déclaré du père du garçon enlevé. Peut-être simplement qu'il
+s'ennuyait alors qu'il voyait la fin de sa vie arriver et qu'il voulait
+montrer son pouvoir.
+
+A la fin de leu renontre, M. Battistini s'était levé de sa grande
+taille, il avait sorti une montre d'or et de nacre de son gilet de tweed
+et avait prononcé ces paroles ailées: " Nous allons le libérer". Oui, il
+avait été très marqué par De Gaulle et pour lui tout devait se finir sur
+des propos guerriers et définitifs. Malheureusement M. Battistini
+n'avait pas tellement le sens de la formule.
+
+[]{#anchor-7}Chapitre 7 : Conference at night
+
+-   Tu l'as salement amoché. Si on envoie une photo on n'en tirera pas
+    un sou.
+
+On est tous en train de parler, en silence dans la nuit.
+
+Cela fait deux jours que la demande de rançon a été envoyée et toujours
+pas de réponse. Il faudra les relancer.
+
+Pierrot est venu me chercher après le travail, il m'a emmené dans une
+école abandonnée. Il m'a montré Sébastien qu'il tient prisonnier dans
+une cave désaffectée. Un des deux ukhrainiens le garde en ce moment.
+Puis on est remonté dans une des salles et on s'est assis sur les tables
+pour discuter. Il a l'air sérieux.
+
+Pierrot m'explique que Sébastien est complètement tuméfié.
+
+-   Il faut l'amener à l'hopital, qu'il me fait. Je vais abandonner.
+
+Je me suis raidi.
+
+-   Ça veut dire qu'on n'aura jamais de pognon. C'est ça. Tu as peur
+    pour tes miches. Tu veux juste pas retourner en prison. Encore un de
+    tes plans foireux.
+
+Pourquoi je bosse avec des hommes? Je me suis demandé.
+
+L'ukrainien à côté de moi, il pige pas un mot, mais la discussion il la
+suit, il regarde nos propos qui sortent de nos bouches, comme des bulles
+de savon, mais il aime bien le ton que je donne à la conversation, c'est
+moi qui fait les pmus grosses bulles on dirait, et ça il semble
+approuver. Luiveut juste l'argent aussi, ça se sent.
+
+-   Ecoutes, me fait Pierrot. On n'en tirera que des emmerdes. C'est
+    râté, faut lâcher l'affaire. Mes potes de prison m'ont envoyé des
+    sms, dans toute la région ils cherchent des renseignements. Des
+    armées de gros bras se sont levées. Ils sillonnent toutes les routes
+    en cherchant des renseignements.
+
+N'empêche, celle qui a pris des risques c'est moi. Celle que Sébastien
+reconnnaitra c'est moi.
+
+Si je veux pas que cette histoire me gâche la vie, il faut que m'en
+sorte toute seule. Comme d'habitude.
+
+[]{#anchor-8}Chapitre 8 : High noon
+
+Ça sentait mauvais. Tout sentait mauvais. D'abord Pierrot. Il puait.
+C'était une infection.
+
+Mais c'était rien en face du kidnappé. les garçons avaient pas eu l'idée
+même de le laver, ou alors ses blessures s'infectaient, les croûtes se
+décomposaient sur le nez, ses yeux avaient pris une couleur rouge
+injectée.
+
+Je n'arrive pas à comprendre si les garçons se rendent compte. Ils
+n'avaient pas de nouvelles des parents, ni de la rançon, nibe.
+
+On ne savait qu'une chose, maintenant, il était recherché le gamin. Les
+anciens taulards les copains de Pierrot, avaient été contactés, même
+Pierrot, un paradoxe!
+
+Je m'en rends compte de plus en plus c'est mon canari Pierrot, quand
+quelque chose arrive il morfle le premier.
+
+Même au Club j'avais entendu des bruits sur les camionnes qui circulent
+avec tous les gaillards de la région. Il frappe aux portes, ils
+naviguent à vue et fouillassentles pavillons, ils sont chauds, ça leur
+vaudra un an de salaire facile. D'ici peu ils la découvriraient notre
+école abandonnée. Je comptais un peu que c'était pas trop leur truc
+l'éducation, ils allaient pas se dire tout d'un coup "Tiens si on allait
+à l'école!", peut-être un d'entre eux avait croisé un prix Nobel en
+maillot de bain à la plage, c'était comme ça qu'ils avaient été proches
+du Savoir, par la connivence en moule-bite.
+
+En tout cas on parlait de nous à la télé maintenant, France 3 Région,
+bizarre ils abordaient le sujet mais sans être inquiets, limite
+rigolade, c'est l'été les pieds en éventails ils allaient bientôt se
+retrouver les gars, Lamalou les Bains nous voilà.
+
+Même au Club le barman avait commencé à me chapitrer sur le sujet,
+j'avais vite fait de lui faire changer de sujet.
+
+J'ai fait semblant de bailler devant Pierrot. Je lui ai dit que je
+devais rentrer avant le lever du soleil, histoire qu'il me fallait
+rester discrète devant Jacky.
+
+Il avait les yeux qui lui sortaient des orbites, il s'est passé la main
+dans les cheveux. J'en ai profité, je lui ai encore un peu parlé.
+
+Il était déjà assez nerveux mais quand j'ai fermé la bouche il avait
+envie de sauter partout. J'était contente de faire mon petit effet. Je
+lui ai dit qu'à sa place je serais très inquiet. Il m'a emmené deavnt la
+porte d'entrée de l'école et m'a montré un sac. Dedans dépassaient des
+carabines - c'étaient les armes des ukhrainiens, qui d'ailleurs
+portaient un pistolet sur eux. Ils avaient pas peur des costauds, il me
+disait, il leur donnerait du pruneau à jeûn, il savait se défendre. J'ai
+fait la mou, il s'est redressé et m'a regardé comme s'il était le
+meilleur.
+
+C'était l'aube, une aube tranquille, douce, j'étais dehors, maintenant.
+Je retournerais à pied au pavillon de Jacky. Ça me permettrait
+deréfléchir à la suite, aussi. L'avenir j'y ai toujours pensé, faire des
+plans, calculer, je peux pas m'en empêcher. Pas pour rien que j'étais la
+meilleure à l'école, pendant la récré, à la Balle au prisonnier.
+Toujours en mouvement.
+
+En chemin j'ai envoyé un texto à Gianni. "Tu veux la gloire? Tu veux de
+la pub gratuite? Viens à la maison, n'oublie pas ton portefeuille quand
+même."
+
+Je suis allée prendre un café au Bar en face du RER, là où ma mère avait
+l'habitude de se rincer la panse. Les propriétaires ont changé depuis,
+des chinois ont volé le boulot des kabyles. Mais ils ouvrent toujours
+aussi tôt. Elle ne viendra plus au bar, ma maère, dans son institut elle
+continue à cuver, elle a tellement bu elle sortira les pieds devant. Je
+ne sais pas si j'irai la voir aujourd'hui, je ne pense pas, même si
+c'est l'occasion. En même temps, pour lui dire quoi? Vieille barrique
+les mecs t'ont bien engrossé, de vin de gosses ou de médicaments. Tu
+t'es bien fait avoir. Le mal t'a rempli et tu en crèves. Quand tu te
+fera incinérer, avec ce que tu as bu tu vas provoquer un incendie.
+
+Il est toujours pas huit heures. J'attends que jacky soit parti au
+travail, pour revenir chez lui où j'ai laissé mes affaires. Il m'a
+envoyé des messages, il se disait inquiet, je lui ai raconté je ne sais
+plus quoi ah oui je suis resté à l'Eden Club pour une soirée EDF qui
+s'est un peu prolongée.
+
+Je n'arrive pas à croire comme il peut être naîf quand même. Il n'a même
+pas capté que je travaille dans un club échangiste. Le strip tease il
+imagine, mais à son avis une fois que les danseurs sont désapés, tout le
+monde s'applaudit et on rentre à la maison terminer son macramé.
+Pourtant le slogan du lieu il le connait : Le feu de la liesse.
+
+Bon c'est passé, le mensonge, quand je vais rentrer il sera parti,
+j'aurai la maison pour me préparer.
+
+Bientôt huit heures. Le pressing va ouvrir un peu plus tôt que
+d'habitude, à cause que la canicule, ils commencent à travailler quand
+il ne fait pas trop chaud. Je passe la porte. Je viens récupérer ma robe
+rouge. Ils suent déjà. La robe est prête.
+
+Je rentre à pied, je monte la colline qui m'amène vers le pavillon de
+Jacky. Arrivée, je me glisse sous la douche et fais longuement glisser
+les gouttes sur moi. Puis je vais m'installer au soleil dans le salon,
+dans la chaleur du soleil qui passent la fenêtre. J'ai gardé que mon
+peignoir pour profiter de la caresse matinale des rayons. Je ne suis pas
+une insensible.
+
+Gianni est arrivé vers midi, pas pressé. J'étais bien la dernière chose
+qu'il avait à faire dans une journée. Je n'avais toujours pas dormi, je
+n'avais pas bougé non plus, j'avais juste infusé au soleil. Je lui ai
+ouvert la porte dans mon peignoir bleu sans ceinture. " Entre."
+
+J'ai pensé à la dernière fois que j'ai été seule avec un gars, il n'y a
+pas si longtemps.
+
+-   Assieds toi dans le canapé.
+
+Gianni est dans le salon maintenant, les fesses enfoncées tellement bas,
+ses genoux remontent devant ses yeux.
+
+Je tourne une chaise vers lui et m'asseois, le buste en avant, les
+jambes écartées, qu'il rêve un peu, mais pas si trop, qu'il voit juste
+un peu de tissu. Vas'y petit.
+
+Je le sens se rembrunir, il recule ton menton en me fixant des yeux, je
+comprends, pour lui une fille qui lui montre sa petite culotte ça lui
+rappelle le boulot. Il se relâchera pas, au contraire il devient
+attentif. On va avoir une conversation d'adultes. Je rabats les pans de
+mon vêtement vers moi.
+
+-   J'ai des informations sur le gamin enlevé. Sébastien, je sais où il
+    est.
+
+```{=html}
+<!-- -->
+```
+-   Tu veux dire Kevin, le fils du pompiste?
+
+Il s'appelle Kevin? Je l'ai toujours appelé Sébastien. C'est vrai
+d'ailleurs maintenant qu'il me le dit, Gianni, le gamin s'est présenté
+sous ce nom. Il faudrait que je fasse plus attention la prochaine fois
+et en même temps peu importe.
+
+-   Oui, le gamin qui a été enlevé. Je suis dans cette affaire et je
+    suis dans le pétrin Gianni, j'ai besoin de ton aide.
+
+La télé ils ne savent rien, je vais te dire moi ce qui s'est passé,
+c'est pire que ce que tu imagines. L'autre jour, c'était jeudi? J'avais
+rendez-vous avec lui. Je l'avais rencontré à la piscine, tu sais, j'y ai
+mes habitudes pour bien me tenir en forme. On avait commencé à discuter
+et on avait bien accroché. Je te la fais courte un jour Il m'a dit:
+"Demain la piscine est fermée ça te dirait qu'on se revoit chez moi?"
+J'ai dit ok. Il m'a donné son adresse à Louvres. Midi, j'avais proposé,
+c'est un moment où je fais ce que je veux, mais mon amoureux pour lui ça
+doit rester secret. Je suis mal. Très mal. Jacky il va me tuer. Mais
+c'est pas le pire.
+
+On s'est retrouvé chez lui quoi dans un appart à Louvres, un truc bien
+beauf, il y avait de la moquette partout, tu vois et il faisait
+tellement chaud.
+
+On était bien tous les deux, on commençait à se chauffer, mais gentiment
+tu vois, moi je le repoussais. On était dans sa chambre. Et là, un grand
+bruit. Boum. La porte d'entrée a explosé. On comprenait rien et le temps
+de rien comprendre, un bande de gars ils sont entrés dans la chambre et
+ils nous sont tombé dessus. C'était comme dans un film. Ils m'ont plaqué
+sur le lit et ils l'ont mis du scotch sur la bouche et ils m'ont ligoté,
+ils ont fait pareil au gamin. Là j'ai vu ils lui ont mis une cagoule et
+ils l'ont emporté. Ils étaient quatre pour le bouger. Je suis restée
+seule avec un gardien, un mec grand baraqué un noir avec avec un énorme
+pistolet puis les autres ils sont revenus J'était sur le lit je ne
+bougeais plus. Ils se sont mis à discuter. Ils m'avaient pas calculé.
+
+\<C'est le bordel, mais en gros je pense qu'elle va faire comme si elle
+avait entendu "on va l'emmener à l'école à Louvres mais elle on la
+libère. Ils la libèrent c'est ça sont histoire à Gégé\>.
+
+Moi ils m'ont relaché. Je leur ai dit que j'étais pas riche. Ils peuvent
+me tuer si je parle. Ils peuvent venir au Club et tout casser, c'est une
+bande, je les connais, tout le monde les connait ici, ils vont me tuer.
+
+Gérard me regarde, les bras raides, droits, qui tournent autour de ma
+tête, de partout, je suis tétanisée, excitée. Enfin... Il voit une
+gamine en panique.
+
+"Aides-moi Gég.Si j'appelle la police je suis morte. Il faut que je m'en
+aille d'ici, que j eme fasse oublier. Il faut s'occuper d'eux."
+
+J'ai dit au hasard un nom d'une cité dans la région, les gars venaient
+de là-bas j'ai menti et ça voulait tout dire. J'ai vu Gérard encore
+s'enfoncer, petit à petit dans le canapé.
+
+"Ils vont mettre le feu à la ville. Il faut les arrêter. Parce que je
+les ai entendu parler tu sais qu'il y a sur leur liste? Des préfets, des
+maires, des commerçants. Même toi peut-être que tu es le prochain sur la
+liste. Ils vont jamais s'arrêter. Je les ai entendu. C'est des
+sauvages."
+
+Gérard me demande plus de précision mais je lui dis "Mais je ne veux pas
+prendre de risque tu vois c'est pas ma guerre."
+
+Je lui ai dit que c'était à lui de gérer maintenant.
+
+Je pouvais tout lui raconter mais c'était donnant donnant. Mais il
+fallait m'aider à aller me planquer. Loin. J'étais un peu comme sa fille
+il fallait me protéger, sinon le scandale allait retomber sur son club
+de strip, sur toute sa clientèle, il serait le paria de tous les bien
+lunés et de tous les mal baisés de la région et ça ferait un paquet, si
+on touchait un seul de mes cheveux.
+
+Je lui ai dit mon idée. Je disparais. Je vais me cacher. Je pars aux
+States ils ne pourront rien contre moi.
+
+Je lui ai tendu mon téléphone.
+
+"J'ai un billet d'avion de réservé, il reste plus qu'à le payer. Tu
+payes pour voir je te dirai où les trouver les salauds qui menacent
+toute la jeunesse du pays. Tu vas devenir un héros dans tout. Tu
+imagines tous les huiles ils vont vouloir te fêter. Tu vas les tenir par
+les couilles. Tu vas devenir le nouveau taulier. Tu auras plus de souci
+pour ouvrir un nouveau troquet, ou faire des travaux dans ton palais
+classé. Ils vont te manger dans la main. Si tu fais rien ils t'en
+voudront à mort et tu peux dire adieu à ton lupanar."
+
+"Je t'offre de gagner au loto. Sors ta CB je te dis tout."
+
+D'une main je lui tends mon téléphone.
+
+Gérard est écrasé dans le fauteuil, complètement accablé, coincé. Gérard
+a pris le téléphone et a rentré son code de carte bleue, c'est sa
+manière de réfléchir. Je lui ai raconté où les trouver, dans l'école
+abandonnée. Je lui ai bien dit, ils sont hyper dangereux, surarmés, ils
+suivent la loi de la cité, le premier qui tire a gagné. Gérard était
+blême. Je l'ai foutu dehors.
+
+Je n'ai même pas pris le temps de me redoucher, je suis allée
+m'habiller, j'avais préparé ma robe rouge.
+
+Ma valise était prête. Avec elle à l'intérieur, tous mes rêves, tout mon
+avenir, un continent à découvrir.
+
+Je suis descendue à la station de bus, direction Roissy, puis L.A.
+J'allais bientôt disparaître, pour renaître ailleurs. Ici ça allait être
+la guerre.
