@@ -1,32 +1,69 @@
 ---
 layout: default
-title:  "Sentimenthèque"
-date:   2021-06-20 22:35:36 +0100
+title:  "Shining"
+date:   2021-08-16 16:10:00 +0100
 categories: littérature atelier livre
 ---
 
-De Kafka: le Journal. Progression vers l'ombre et la lumière. Il a tellement secondé le monde. Des pantomimes (de nous autres humains) à la mystique et à l'exploration spirituelle. Le saint tutélaire de la littérature?  
+# Idées sur le livre
 
-De Sarraute - Le planétarium. Écrire de soi, de ses trous, que l'on essaie de combler mais plus on essaie de les cacher, plus on les voit, même si personne ne peut les distinguer à l'oeil nu. Écrire l'imperceptible et la violence, la parole qui adoucit et le silence qui tue.
+> Titre humoristique, vu mon délabrement, mais le délabrement est justement le suj et du livre. (__ce__ délabrement?) 
+> À combien de degrés d'inclusion et de fuite peut on arriver? À l'infini si le but est la fuite.
 
-De Virginia Woolf - Les Vagues. Car la littérature parle de l'intérieur, des flux et reflux de l'âme, des ondes qui nous emplissent, qui s'amplifient puis qui s'en vont. 
+## Idées de scènes, d'images?
 
-De Zola L'Assomoir. Pour la chute du toît, la première fois, adolescent, que j'ai touché du doigt le style comme enjeu ultime de la littérature.
+### Start shooting  
+Je pense à mes troupes de personnages comme à des cibles dans Cyberpunk. Des gens qui seraient de la chait à canon pour les jeux vidéos.
+Je lis "Terminus radieux" (Volodine) et cette thématique des fantômes qui errent qui marchent sans but est un peu la mienne, avec une politique différente peut on dire. Il le vois des yeux du 19e et 20e siècle, j'imagine plutôt les corps vendus, oubliés, du 21e siècle. D'où cette idée du jeu vidé. Des gens font nombre et sont en trop, dans un monde où la mort est à moitié abolie. Comment ces morts seront soignés?
 
-De Fantomette - tous. Car tout est permis.
+### La chaleur dissout.
+Les corps disparaîssent par la chaleur. Il faut parfois les cacher pour les garder. Solidarité des uns devant le soleil (thx Volodine).  
+Le chapeau est une denrée qui vaut cher, plus que la nourriture.
 
-Kundera - L'art du roman. Ou le roman vu comme une pièce musicale, avec ses harmonie et et mélodies, avec ses parites, ses pièces, son art de la répétition...
+### Nourris de l'extérieur.
+Ils ne peuvent ne doivent pas bouger. Chaque jour on leur apporte nourriture et un jet d'eau. Ils ne savent pas s'il doivent garder le jet d'eau pour se laver ou pour boire.
 
-De L.F. Céline - Le voyage au bout de la nuit, Mort à crédit. L'âme dans sa solitude dans sa crasse dans sa maladie dans son travail infini, l'âme des tout petits, des plus humbles, des plus improbables corps, avec l'énergie d'une langue qui veut vivre.
+---
 
-Jim Thompson - Nuit de fureur, où le corps se décompose à mesure de la lecture, où l'écriture s'enfonce dans le mal et la mort gagne.
+## Discussion.
 
-De Virginie Despentes, James Ellroy, Hélène Frappat, regards échangés, dansa l rue, à une rencontre, ailleurs. Leurs regards chaque fois m'a ouvert des portes. Les yeux droits dans les yeux, fixes, curieux et sans jugement, mon âme photographiée en un instant, et cette photo développée devant moi. Cela revient à une croyance certainement chamanique, de sentir son âme ainsi mise à nue. J'ai vu, aussi, chez eux, la folie autorisée, enfin, celle de pousser la langue.
+### Que se passe-t'il quand ta langue est parfaitement étrangère?  
+Et mon Personnage principal? Seul. Dans sa chambre d'hôtel. Lui peut survivre dans n'importe quel lieu, il a la carte (selon la jolie expression). S'il est dans un pays parfaitement étranger il ne parle qu'à lui même, il ne décrit que de son point de vue. Il peut donc bien se tromper. Ressort romanesque efficace et apsse partout ma foi!
+Il peut par exemple... Participer à un meeting politique. 
+Il peut... se faire arnaquer, bien sûr.
+Il peut être spectateur impartial. Dire avec ses mots, et pour personne.
+Quoique, personne? Il peut communiquer avec son entreprise. Idée un peu toc, il envie des mails de rapport à son entreprise.
 
-De Robbe-Grillet. Le Voyeur. J'étais enfant, l'institutrice nous avait fait une explication de texte du début de ce livre, une description géométrique, qu'elle avait comparé à dela littérature plus classique. Elle nous avait prévenu que l'on ne comprendrait rien. Des années plus tard je suis retombé sur ce même texte. Son explication, sa douceur m'était toujours restée.
+### Le personnage à l'étranger normalement veut "rentrer chez lui"
+Si le personnage sort de ce monde c'est au prix de n'y avoir rien compris. (+1)
 
-De Beckett le Dépeupleur. Séjour où des corps... La langue détruite, les corps terminés, inachevés, finis, le monde perdu dans ce qui lui reste, c'est à dire plus rien. La haine des lieux communs, des mots faciles.
 
-De Ponge, La fabrique du pré. La poésie au travail. L'oeuvre des mots, l'oeuvre des lettres, construire, dit-il.
+### La frontière.
+Le gardien de la frontière... Garde de ce monde, garde de l'enfer. Là est son seul pouvoir malheureusement pour lui (et pour moi).
+
+### Le gars assimilé.
+J'ai oublié ma bonne idée...  
+Il a beaucoup de possibilités. Il peut faire commerce avec le monde.
+
+### Le monde autour.
+Continuer.  
+Freiner la révolte, vendre des images.
+
+---
+
+## Résumés, concentration.
+
+### Elevator pitch.  
+C'est l'histoire de gens qui ne peuvent pas. Ils voudraient travailler, mais il s ne le peuvent pas. Ils voudraient vivre décemment mais ils ne le peuvent pas. Ils voudraient parler, comprendre le monde extérieur, mais ils le peuvent littéralement pas. Ils se dissolvent dans le bain du monde.  
+> L'image (ils se dissolvent) est ici l'explication.
+
+### Elevator pitch à la Sorbonne.
+Les uns voudraient vivre mais sont éntrés dans la moulinette et n'en sortiront plus. L'étranger lui est entré dans ce monde où il ne comprend rien.  
+
+---
+
+## Artefacts.
+
+
 
 
