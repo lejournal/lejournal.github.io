@@ -4,7 +4,6 @@ title:  "Considération du chiffon"
 date:   2021-09-07 22:35:00 +0100
 categories: littérature atelier écrire
 ---
-10 lignes, 100 mots.
 #### Cycle Été 2021 - extras - d'après Ponge et le Savon.
 # De la considération pour les chiffons.
 

@@ -10,4 +10,7 @@ V. Van Goght (en anglais malheureusement) Lettres à Théo.
 
 "Voilà voici il y a ou c'est" sont des démonstratifs en français. Met en avant.
 
+" Le jour appartient au pouvoir. La nuit à la puissance."  
+Jacques Rivette  
+Le pouvoir contrôle. La nuit déborde, incontrôlable. Le peuple du jour craint celui de la nuit. (JM. Lalanne, les inrocks)  
 
