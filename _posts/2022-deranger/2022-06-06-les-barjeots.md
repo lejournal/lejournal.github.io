@@ -19,8 +19,3 @@ J'ai échangé un château pour acquérir un acte de naissance Certifié de magi
 J'ai voyagé, racheté des villes, massacré des civilisations. Je suis connu comme le Fils du Soleil aux continents du Sud, le Père Mère du Temps sur la Lande infinie du Centre.  
 Mon pouvoir ne connaissait plus le sommeil. Mais moi si. Un soir je me suis endormi. Une bande de salopards de petits gnomes niveau 7 m'ont envoyé des séries des sort de glace et m'ont tout volé.  
 Ils ne m'ont même pas tué.  
-
-
-
-
-
