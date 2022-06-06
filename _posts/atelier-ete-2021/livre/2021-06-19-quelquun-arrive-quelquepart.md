@@ -1,6 +1,6 @@
 ---
 layout: default
-title:  "QUelqu'un arrive quelque part"
+title:  "Quelqu'un arrive quelque part - Il débarque en pays étranger"
 date:   2021-06-20 22:35:36 +0100
 categories: littérature atelier livre
 ---
