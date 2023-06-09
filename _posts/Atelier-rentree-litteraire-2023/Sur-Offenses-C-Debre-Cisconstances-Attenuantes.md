@@ -1,7 +1,7 @@
 ---
 layout: default
 title:  "Circonstances atténuantes."
-date:   2023-03-06 22:35:36 +0100
+date:   2023-02-06 22:35:36 +0100
 categories: littérature atelier écrire
 ---
 # Circonstances atténuantes.

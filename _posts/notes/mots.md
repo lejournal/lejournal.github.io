@@ -1,0 +1,17 @@
+---
+layout: default
+title:  "Mots"
+date:   2023-06-03 01:16:36 +0100
+categories: perso
+---
+## 
+Hémoraggie
+Contagion
+Contamination
+Machine molle
+Système neuronal
+Écriture comme agent de contamination
+Langage contamination plutôt que communication
+Castaneda
+Céline
+Côté maladif de l'écriture
