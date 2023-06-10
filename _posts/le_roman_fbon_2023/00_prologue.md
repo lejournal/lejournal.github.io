@@ -29,7 +29,7 @@ Mais pas que.
 Mais pas que.
 - tu voulais juste explorer le monde comme le gamin que tu es. T'es resté le même gamin. Tu vas parler oui.
 Mais pas que.... Mais pas que. Mais pas que. 
-Putain tu as de la chance qu'on puisse pas te frapper. Il m'énerve mais il ménerve!
-Le second petit nerveux tend la lampe sur ma gueule et m'abois dessus:"Parle!"
+Putain tu as de la chance qu'on puisse pas te frapper. Il m'énerve mais il la cherche sa tarte!
+Le second petit nerveux maintenant saisit la lampe sur ma gueule et m'abois dessus:"Parle!"
 
-On n'arrivera jamais nul part. 
+On tourne en rond.
